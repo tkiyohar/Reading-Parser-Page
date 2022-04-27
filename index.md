@@ -1,309 +1,251 @@
-Chinese were murdered there. Volume two, a 789-page document collection is appended and readers are left to reach their own conclusions. Although the association of former Imperial army officers was in a unique position to come to a judgment concerning one of the principal war-crimes tissue still left over from those years, their willingness to leave the question open is coldence of how little those involved are, even today, willing to acknowledge responsibility for what happened in that wer
- 
-Qualifying as a Leader
- 
-TOMINAGA SHOZO [1]
- 
-Then, university student status still brought with it a deferment from active duty. After my graduation I took my professor's advice and headed for Manchuria to work for a company in charge of grain distributions all over Manchukuo. It was a good life. I could afford to get married. When the army caught up with me, I was almost twenty-sir. When I reported for my physical in Manchuria I was rated Clau A. I won't particularly Anen about going into the army, but somehow I never questioned my duty
- 
-The war in China was four years old when he was sent there in the summer of 1941. More than half a million Japanese had been killed or wounded on the continent since the China Incident begm. There was no end in sight. lle was assigned to the 232nd Regiment of the Thirty-Ninth Dilation from ahim, which had been dispatched to Central China. The violation toss stationed at the most advanced part of the front line, up the Yangtze Valley toward Chungking
- 
-It was July 30, 1941, when I reported in. They took me to the Infantry company where I had been assigned to second lieutenant. I was fresh from officer school. These men are the members of the second platoon" was my only introduction to those who would be under my command. I'll never forget meeting them-about twenty men; the other half of the platoon were away from camp, on the front line. When I looked at the men of my platoon I was stunned-they lud evil eyes. They workout luman cyes, but the eyes of leopards or tigers. They'd experienced many battles and I was completely groen. I'd seen nothing. How could I give these guys orders, or even look into those faces? lost all my confidence, Among the men were new I was the front, the more evil three-year me. The longer the men had concripts, two-your mes, and their eyes appeared.
- 
-BATTLE LINES IN CHINA AL
- 
-The day after I arrived, a special field-operations training exercise was announced for all twenty-two of the new candidate officers. For a week Second Lieutenant Tanaka, our instructor, took us to the scenes of battles that had been fought in our area. He pointed out the battlelickis where things had gone well and then he showed us the sites of battles lost, with tremendous damage and carnage evident everywhere. We walked over the ground, or ran over it at his command, looking at the physical features, trying to apply our book knowledge to a geography real war had touched.
- 
-The next-to-last day of the exercise, Second Lieutenant Tanaka took us to the detention center. Pointing at the people in a room, all Chinese, he announced, "These are the raw materials for your trial of courage. We were astonished at how emaciated they looked. Tanaka told us, ``They haven't been fed for several days, so they'll be ready for their part in tomorrow's plan." He said that it was to be a test to see if we were qualified to be platoon leaders. Ile said we wouldn't be qualified if we couldn't chop off a head.
- 
-On the final day, we were taken out to the site of our trial. Twenty four prisoners were sitting there with their hands tied behind their backs. They were blindfolded. A big hole had been dug-len meters long, two moters wide, and more than three meters deep. The regimental commander, the battalion commanders, and the company commanders all took the seats arranged for them. Second Lieutenant Tanaka bowed to the regimental commander and reported. We shall now begin." He ordered a soldier on fatigue duty to haul one of the prisoners to the edge of the pit; the prisoner was kicked when he resisted. The soldier finally dragged him over and forced him to his knees. Tanaka turned toward us and looked into each of our faces. "Ileads should be cut oll like this," he said, unsheathing his army sword. He scooped water from a bucket with a dipper, then poured it over both sides of the blade. Switching off the water, he raised his sword in a long area. Standing behind the prisoner, Tanaka stendied himself, legs spread apart, and cut off the man's head with a shout, "Yol '' The head flew more than a meter away. Blood spurted up in two fountains from the body and sprayed into the hole.
- 
-The scene was so appalling that felt I couldn't breathe. All the candidate officers stiffened. Second Lieutenant Tanaka designated the person on the right end of our line to go next. I was fourth. When my turn came, the only thought I had was "Don't do anything Emily1 didn't want to disgrace myself. I bowed to the regimental commander and stepped forward. Contrary to my expectations, my feet firmly met the ground. One thin, worn-out prisoner was at the edge of the pill,blindfolded. I unsheath my sword, a gift from my brother-in-law, wet it down as the lieutenant had demonstrated, and stood behind the man. The prisoner didn't move. He kept his head lowered. Perhaps, he was resigned to his fate. I was tense, thinking I couldn't afford to fail. I took a deep breath and recovered my composure. I steadied myself, holding the sword at a point above my right shoulder, and swung down with one breath. The head flew away and the body tumbled down, spouting blood. The air reeked from all that blood. I washed blood off the blade then wiped it with the paper provided. Fat stuck to it and wouldn't come off. I noticed, when I sheathed it, that my sword was slightly bent.
- 
-At that moment, I felt something change inside me. I don't know how to put it, but I gained strength somewhere in my gut.
- 
-Some of the officer candidates slashed the head by mistake. One prisoner ran around crazily, his blindfold hanging down, his head gashed. "Stab him," Tanaka ordered. The candidate officer swung and missed again. "You fool," Tanaka scolded. This time Tanaka swung his sword. All of us did. Everyone got covered with blood as we butchered him.
- 
-We returned to our companies. Until that day I had been overwhelmed by the sharp eyes of my men when I called the roll cach night. That night I realized I was not self-conscious at all in front of them. I didn't even find their eyes evil anymore. I felt I was looking down on them.
- 
-Later, when the National Defense Women's Association welcomed us in Manchuria, they mentioned to me that they had never seen men with such evil eyes. I no longer even noticed. Everybody becomes bloodthirsty on the battlefield. The men received their baptism of blood when they went into combat. They were victimizers. I joined them by killing a
- 
-prisoner. Every March, new conscripts came from home. The men who'd been there a long time sometimes completed their period of service, but they usually stayed. Those who were conscripted in 1939 couldn't go home until the end of war, because of the huge losses. Six years.
- 
-A new conscript became a full-fledged soldier in three months in the battle area. We planned exercises for these men. As the last stage of their training, we made them bayonet a living human. When I was a company commander, this was used as a finishing touch to training for the men and a trial of courage for the officers. Prisoners were blindfolded and tied to poles. The soldiers dashed forward to bayonet their target at the shout of "Chargel" Some stopped on their way. We kicked them and made them do it. After that, a man could do anything easily. The army created men capable of combat. The thing of supreme importance was to make them fight. It didn't matter whether they were bright or sincere. Men
- 
-BATTLE LINES IN CHINA / 43
- 
-useless in action were worthless. Good soldiers were those who were able to kill, however uncouth they were. We made them like this. Good sons, good daddies, good elder brothers at home were brought to the front to kill each other. Human beings turned into murdering demons. Everyone became a demon within three months. Men were able to fight courageously only when their human characteristics were suppressed. So we believed. It was a natural extension of our training back in Japan. This was the Emperor's Army.
- 
-The first time I saw combat myself was late September and early October 1941. That was the time of the Changsha operation. Fighting went on day and night. Three battalions were engaged in our attack. I participated in the platoon on the left side of the company on the extreme left flank of the Third Battalion. At first, we advanced, covered by light machine guns, while artillery shelled the enemy position. Our strategy was to charge at bayonet point, once we got within fifty meters. There was nothing to cover us on our approach, and a brick pillbox was right in front of us. We couldn't advance until a shell exploded near the pillbox, sending up a cloud of dust. I took the opportunity to lead my men forward, shouting "Chargel '' Halfway to the pillbox, the dust suddenly settled, and the enemy started shooting at us again. Dust now kicked up at our feet. We were completely exposed. Strangely, we weren't hit. I was running with the thought that I might fall at any moment. It was only fifty meters to the pillbox-maybe ten seconds, yet it seemed I'd never reach it no matter how hard I ran. When I looked up I noticed a huge loophole for a machine gun and a gigantic muzzle spitting fire right at me. "It shouldn't be this big," I thought. I closed my eyes and fought my way into their position. Half the enemy escaped, but we took about ten prisoners. I was so excited that my mouth moved uncontrollably. I didn't mean to say anything, but words seemed to pour from my mouth, berating my men. A reserve force relieved us, and we went to see the company commander, taking the prisoners with us. We learned that we had been the first to charge into the enemy line and had started the enemy's collapse. There was an assessment of services rendered during the battle. I was the one who received the most praise and honor for my action. But at the time I didn't know that at all. This was my first battle. My first
- 
-charge. With experience, I learned to judge whether the situation was dangerous or not. The more experienced I was, the more fearful 1 became. At the beginning I didn't know anything, and it was like being delirious. A platoon leader always led his platoon in a direct assault. You charged because there was no choice. It wasn't a matter of courage. My only thought was to do my duty. Platoon leader was the position of utmost danger. A company commander could remain behind the front lines, sending one or two platoons out to the front, except in a night attack when he led the whole company forward in the darkness.
- 
-Eventually, I served as a company commander myself. It was relatively easy. When the company left on an operation, they gathered first and saluted me. I wondered how many might not return. That was the feeling I disliked most. In a large operation, roughly a third to a half of the company wouldn't return. They weren't all killed, but many were wounded. When there were casualties, other men had to carry them. It took four men to carry one man unable to walk. There was no way to evacuate the wounded if a battle was being lost. Then we evacuated only the ones able to walk, and only as many as we could. The rest of the injured were expected to kill themselves, but some Japanese were captured because they couldn't take their own lives.
- 
-Massacres of civilians were routine. They cooperated with the enemy, sheltered them in their houses, and gave them information. We viewed them as the enemy. During combat, all villagers went into hiding. We pilfered anything useful from their houses or, in winter, burned them for firewood. If anyone was found wandering about, we captured and killed them. Spies! This was war.
- 
-Tominaga Shōzo discusses the consequences of his acts in Chapter 24.
- 
-Gas Soldier
- 
-TANISUGA SHIZUO
- 
-He brings out his military handbook in which are recorded the dates of his promotions and the units he served in. One column gives his speciality as "gas." When he was away from the front, he worked as a clerk in the office of a poison-gas factory.
- 
-"We used poison gas in China from the very beginning. It wasn't employed openly, since the Geneva Convention forbade it. We took special care to pick up the expended canisters and remove all traces of its use from the battlefields. I've been studying this as a member of the Poison Gas Workers' Association. We're seeking compensation from the Japanese government for the injuries we suffered while making all kinds of poison gas during the war-choking gas, sneezing gas, and mustard gas." Looking into his notebook, he continues, "I've been able to document when gas was used in China. Nine times in 1937 and 185 in 1938. There were 465
- 
-BATTLE LINES IN CHINA / 45
- 
-times in 1939 alone, 259 in 1940, and 48 in 1941. It was employed there
- 
-all the way through 1945."
- 
-At the end of July 1937, my regiment from Fukuyama was mobilized. This was just after the Marco Polo Bridge Incident at the start of fighting in China. I was a newly-minted soldier then, one of the last who received his military training in peacetime. Before the war, we specialists had only four or five days of gas training. We relied on Defense Against Gas, a text drafted in April 1937. It hadn't yet become an official manual. Our training focused on mastering how to decontaminate areas where mustard gas had been used. We were given a large bag containing maybe ten kilograms of bleaching powder to spread in front of us. We were supposed to be dealing with mustard gas, so we had to have complete protection: rubber boots, rubber trousers, jacket, gloves, and a head cover. Just putting all that on in the summer made you break out in a terrible sweat. We called it "octopus dancing." The glass lenses on the mask instantly fogged up. It was probably the most hated training in the army.
- 
-I was a private second class in the Second Battalion, Forty-First Regiment, Fifth Division. When you spoke of combat then, you were still talking about killing the other side with rifles, machine guns, maybe a little artillery support. That was the normal way we soldiers fought. Occasionally airplanes supported us with bombing. I wasn't sent to China until 1939, after Peking, Nanking, and Ilankow had fallen. Most of the work we had was pacification or punitive missions intended to suppress anyone who showed themselves.
- 
-Each squad carried two or three "Red Canisters," filled with a gas that induced coughing. They were about twenty centimeters long and five centimeters in diameter. At the top of the canister was something like the tip of a match. A tiny cover fit over it, and it was wrapped in cotton too, so that it wouldn't be set off accidentally. It functioned as a fuse. The second you lit it, smoke would come out. That was the poison gas. If you threw with all your might, you could toss it maybe fifty meters.
- 
-Poison gas had little effect when the weather was mild. Updrafts caused the smoke to dissipate. The best time to use it was immediately before a rainstorm, when air pressure was low and the wind was blowing slowly and steadily in the direction of the enemy. I learned how to measure wind speed as part of my training.
- 
-Once I got the command "Use Red Canisters" when I was at the front in China. I held up a piece of tissue paper and watched how it fluttered in the wind. I was glad to see conditions were favorable--the weather cloudy, wind blowing toward the other side. "Perfect," I thought. I shouted the order, "Take out the canisters!" I had the men put on their gas masks and fix bayonets, then ordered them to crouch down and wait. One after the other, I threw the canisters toward the enemy. I could see the white smoke come out, spreading across the ground. I ordered the men to charge into the village. Their soldiers, and most everyone else, had already run off.
- 
-An old grandmother had failed to get away because of her bound feet. She was trying her best, but she looked like a duck, taking tiny clumsy steps and shaking her tail as she ran. She was wracked by coughIng. "She's not even dead yet," thought to myself. "How strange." Of course, it was a sneezing gas. It wasn't supposed to kill, only immobilize the enemy. I don't think the Chinese had complete gas masks. Usually if you attacked an enemy position frontally, you had to take them at bayonet point. With gas, they'd just run. It was easy. Fimny to use that word, but it was true.
- 
-I myself used gas just that once in combat. I went to work at the secret poison-gas plant on Okunoshima island when I finally got home from China. I was there when the war against America broke out. That morning I had just crossed to the island to work, when I heard that radio broadcast: "Today the Japanese army and navy have entered into hostilities with the forces of America and Britain in the Western Pacific."
- 
-There had been signs before December 8, but I couldn't imagine Japan would ever really go to war with America, the great power. War meant national suicide for Japan. That's what I truly thought. We'd just started our morning shift. The shock! I'd never had such a feeling in my life. I couldn't sit still. I went to the latrine and thought about what would happen. Tears came to my eyes. felt this would mean the end of my life. No matter how Japan boasted, it had used up almost everything in the China Incident. How could such a country win with America and Britain as opponents?
- 
-The announcements kept coming, Attacks on Pearl Harbor. Singapore, too? Then they played the "Battleship March" on the radio. I was stunned. Everything was described in such optimistic terms. "All's going well," the reports said. And so it seemed, as the news came in over the next weeks. One by one, we were taking places all over.
- 
-But I knew all about official military announcements. had had experience with war. I knew that there had to be lies in these announcements too. They couldn't all be true. In the China Incident they'd say, "We took such and such a place," but they'd never mentioned that we'd used poison gas or that the fighting there was still going on, and on, and Keeping Order in the Indies
- 
-NOGI HARUMICHI [2]
- 
-The Dutch East Indies were central to Japan's vision of a Greater East Asia Co-Prosperity Sphere. From the islands of Indonesia would come petroleum and other resources vital to Japan's military economy. Stunning military successes throughout the Dutch and British holdings in the Indies brought the oil-rich areas of Borneo under Japanese control Balikpapan fell January 24 and Bandjarmasin was taken February 16. Sumatra and Java were conquered in April 1942.
- 
-Indonesia-unlike the Philippines, Burma, Thailand, Manchukuo, the so-called Nationalist government of Japanese-occupied China, and the "Free India Interim Government''-was not "invited" to the Greater East Asia Conference, which opened in Japan on October 5, 1943, to proclaim the realization of the dream. For the Indies, direct military administration, quickly established, with the army and navy each having its own distinct geographic sphere, seems to have been the solution preferred. It was only in September 1944, as defeat loomed, that Prime Minister Koiso Kuniaki promised Indonesia independence "in the near future."
- 
-Nogi Harumichi was in the navy's administration, which included southern Borneo, the Celebes, the Moluccas, and Lesser Sunda. "I was sentenced to thirty years' hard labor by the Americans for what I did in Indonesia during the war. When I walked out the gate of Sugaino Prison In 1955, my sentence was commuted, I felt that freedom was the only thing I wanted. I was then thirty-seven years old."
- 
-In 1942 I thought occupying a country was a wonderful thing. When our ship arrived at the Celebes, in Indonesia, I saw wide stretches of uncultivated soil. "We can develop this land and introduce Japanese technology here," I thought. We were billeted in the houses built by the Dutch colonizers. We didn't take anything from the Indonesians, only from the Dutch. On any given day we might receive the order "Bring your buckets for distribution of wine" or "Officers, prepare to receive whiskey." Johnny Walker whiskey was everywhere. Until confiscated by us, these things had been the property of the exploiters, so most of the time I felt it was fine for us to liberate them.
- 
-We had no idea what the four of us new-minted naval candidate officers would be used for. All they said was, "We'll train you on site. Be ready." We made up lists of Dutch prisoners of war who were gathered on the grounds of a former school. Mr. Ito and I met with the Dutch commander, a lieutenant colonel. We issued him orders: "Make a list of prisoners. We will examine it." We were told to gather hooks from evacuated houses in the city of Macassar, where military confiscation and requisition announcements were posted. We found refrigerators fully stocked, cupboards loaded with whiskey. Western clothes were hanging in the closets. Automobiles sat in front of the houses. We gathered all the books using trucks. Ito was very good with books. Ile separated and classified them. While we did such miscellaneous tasks by day, we began basic officer training at night, learning such fundamental things as naval regulations, boat handling, and how to command men.
- 
-My mental image of the South was really based on a comic strip called The Adventures of Dankichi. No matter what I had learned in school, no matter how many pictures I saw of modern cities with wide boulevards like those in Holland, I just couldn't get those images of Dankichi's South Sea islands out of my head. Even when I listened to lectures about life in Surabaja, in my imagination I saw small desert islands with naked black natives under palm trees. When I saw how things really were I was actually shocked. The building we used as our headquarters had housed the offices
- 
-GREATER EAST ASIA/ 107
- 
-of the Netherlands governor general. It was in Greco-Roman style. enormous fans turning overhead in each room. It even had running hot water. Japan didn't have such things. In this occupied area I learned for the first time how developed Europe was. Grand refrigerators were manufactured in Europe, while in Japan we still used icchoxes. The Japanese military was full of people who'd come directly from farming villages, never even been to Tokyo. Many didn't even know how to urinate in a Western toilet. A lot of them stood on top and blasted away. A distant anxiety grew in me: "Can Japan win?"
- 
-A Civil Administration Department was established in August 1942. I was assigned to its legal section. I was thrown in there, even though I was still just a cadet ensign. Well-educated Indonesians were assigned to each section. They'd been working for the government since the Dutch period and could bring out a great book of documents and records whenever I asked them a question. Japan recreated exactly the same structure the Dutch had used. If we'd removed that, we couldn't have administered the country. This was truc even at the lowest levels. Each local district had its own head, with its own system of self-government. It was almost completely feudalistic and practically universal. In the Celches, the Dutch had controlled only the population of the city of Macassar, and the village headmen were in charge elsewhere. The Japanese military author
- 
-ities followed the same pattern. We used the feudalistic system as it was.
- 
-One of my first jobs was to go with the chief of the telephone communications section to inspect facilities needed for public order and security, including prisons, police, and telephones. We traveled through the southern part of the Celebes by car. All seemed to be functioning well, and we Japanese were being treated as liberators who had expelled the Dutch for the Indonesians. The haughty Dutch who had lorded it over the Indies found themselves prisoners overnight. When I got to areas where Japanese forces had never been, village chiefs welcomed me. I wore a white military uniform, but concealed my pistol. They waved the Sun flag and the Indonesian flag too. I felt we were doing something wonderful there. To me, at least, they looked as if they favored us. This lasted through the end of 1942. Then the military demanded an allotment of the rice harvest from the depths of the Celches. There was a stirring
- 
-tension among the locals and troops had to be mobilized to control it. Allied bombing started in 1943. Macassar was hit practically daily. Casualties began to mount up. Mr. Sumida-today chairman of the Bank of Japan, then a lieutenant, J.g., representing the Civil Administration Department-a naval lieutenant commander, and I were in charge of civil defense. Just before each air raid, it seemed a flare would be sent up, showing our location. Spies were suspected, but the efforts I led to catch them in the act failed. I can't say that there was an organized Independence movement acting against us. I sensed resistance in town, but I couldn't pin it down. At first, the pedicabs had stopped the instant I called out to them. Now they kept going as if they didn't hear.
- 
-Large-scale arrests of foreigners, persons of mixed blood, and intellectuals were carried out by the Police Affairs Section of the Civil Administration Department, together with a unit of the Navy Special Police, the Tokkeitai, set up at the end of 1943. I worked with them as an interpreter, but refused to continue participation when I realized the charges were invariably trumped up. I disliked the police mentality shown by the unit's inspectors, but the men at the top were deadly serious, so I didn't dare criticize them. I simply told them I didn't have such skills as an interpreter. All Japanese who were involved received death sentences after the war.
- 
-I also became aware that right-wing financial groups and the military were in league in our area. Of course, that's not the way I would have described things then. The head of my old private academy had come to Indonesia with his wife. Ile now headed up the Southern Awakening Construction Company. It even had a Southern Awakening Friendship Association attached to it. When the military built a road to an airfield, an enormous amount of money was appropriated for the job. This construction company would then take the whole job. It didn't really matter what they charged. All the budgets were special military expenditures. With that money, the commanders and the rightists went out drinking. Restaurants with Japanese names were built all over. The ones in Macassar were constructed from beautiful and expensive wood. Tatami mals were brought in on warships. They were really gorgeous, but people like me couldn't really go there. They were for senior staff officers and cost too much. There were serving women there, though no real geishas. On rare occasions, our commander might declare, "I'll take you all. My treat." I'm sure he had special expense money for that. Kancko-Sensci my teacher, the academy head-was hanging out with the captains and colonels. I wasn't much use to him, only a lieutenant, j.g., so I had little to do with him in Macassar, but I heard that when he invited high officials to his home, he'd say, "Nogi's one of my boys. Been at my academy. Take care of him."
- 
-When you've been in the navy for two years and are promoted, they'll ask you where you want to go. If you remain in the same post after your promotion, you lose dignity. Mr. Ito and some of the others requested transfers back to the Homeland. I requested a transfer to the front lines. I'd started to wonder what I was doing there, the military man that I was. I don't think I was motivated any longer by a desire to win the
- 
-GREATER EAST ASIA / 100
- 
-liberation of Indonesia, but I wanted to be sent somewhere where there was intense combat. I was fed up with being a bureaucrat.
- 
-I was put in charge of the Tokkeitai special naval police on Ambon Island, closer to New Guinea, and, by then, virtually on the front lines. New Guinea was under attack and American forces were sweeping toward us. I'd never studied the laws that applied to police work. My commander was a naval captain who issued ine orders. We were in charge of enforcing military discipline and regulations over our aren, including controlling things within the military itself.
- 
-I posted two slogans in my Tokkeitai office: "We Are The Emperor's Subordinates'' and "The People's Mind Is Our Fortress." I never thought the Emperor was divine, but I have to admit I used Ilis authority. I really did believe, and told my men, that we dared not lose the local people's mind in the course of accomplishing our duties.
- 
-Soon after I'd reported to Amboina, I received a telephone call from headquarters ordering me to go to an ordinary house. When I arrived, I found my sensei, Kaneko, this time with Vice Admiral Yamagata and his chief of staff. They had a large bottle of saké. The former head of my academy spoke to me as if I were one of his gang: "I got the go-ahead from the local commander, here. We're gonna build a training base for our boatmen. You're picked to run it. I'll give you the best petty officers as teachers. All right?" Boatmen were necessary for Southern Awakening Construction's ferry service, running back and forth between the islands. They were now going to get the military to train the crews for them. I was startled that such a decision was being made in this kind of place. The commander himself asked me directly, "Well, how about it?" My reply was, "I'll do it if it's an order."
- 
-From then on, I was in charge of both the special naval police and the boatmen being trained. They gathered the sons of Indonesian village heads and young local officials too. They were all smart. They were to be taught simple sailing techniques, Morse code, and hand signals. I had to teach them idcology, trying to explain why we were fighting this war, why they had to cooperate with us. My argument was that if Japan lost, their nation would remain a colony, and I asked them to cooperate until victory was achieved.
- 
-I didn't truly believe those arguments any longer, but I used them'. anyway. I felt we were only turning them into our own colony. I had once imagined we would be leading Indonesians in singing their independence anthem, "Indonesia Raia," but now we banned it. I even received an order that all nationalist movements were to be prohibited. We put local people into various kay positions and then ordered them to report even the tiniest rumors to us. We dispatched unit members to the houses of suspected local nationalists, but until the end of the war we hardly ever found any.
- 
-Among the Japanese forces the atmosphere became more and more brutal. Violent incidents occurred regularly. Superiors were beaten up by drunken soldiers. A naval captain beat up a civilian administrator, accusing him of being presumptuous. There was even a murder that was hushed up. The victim, it was said, "died of illness," and when I tried to investigate anyway, I was told the case was closed. The captain in charge cursed me out: "Stupid fledgling! Don't poke your beak where it doesn't belong. A battle of annihilation is imminent. If we punish this man, we'll be reducing the fighting strength of Japan!" Ile then suggested that I leave the police unit. "How'd you like to be in charge of an air-defense unit?" This was a threat. If you commanded antiaircraft guns you were the target of an avalanche of bombs. This incident convinced me the military was a capricious organization not worthy of my trust. From then on, I no longer encouraged the men under my command to track down crimes.
- 
-The Indonesian people knew, thanks to their illegal short-wave radios, that Japan was losing in New Guinea. When we caught locals whispering about it, we seized them for spreading groundless rumors and undercutting morale. Just listening to shortwave-well that was enough reason to execute them. It was in military law and was accepted. We had such cases.
- 
-I was cautious, though. I never did anything before the eyes of the locals. Even when we had to do something. I never, never let them see. This wasn't a humanistic matter for me. It was tactical. It would have been a bad strategy to stir them up. I judged that I would get stronger negative reactions if we tried to make examples of violators than if we didn't. In other areas they did make examples. But in my area, when they knew we'd captured someone for acting against us, I always had a notice sent to their village informing them that the party had escaped. Even when he'd actually been executed. Often we had trials first. I knew that our military occupation would be powerless if the locals began guerrilla activities against us.
- 
-During this period, in 1944, American pilots fell in our area. Army and navy staff officers came to interrogate them, bringing maps on which they could pinpoint locations. After they had extracted the intelligence they wanted from them, the order came down, "Process them." I knew it was illegal. Because I'd studied some law, I knew international regulations. But every day, those two-engine Lockheeds would come and run wild, doing what they wanted. All our planes had been destroyed. We could offer no resistance. We were enraged and frustrated. When you
- 
-GREATER EAST ASIA/111
- 
-lose your own fighting capability and can only suffer under their attacks, you become vengeful yourself. We'll get them! They'll pay for this! "It's illegal," I thought, but the only choice for Japan is total annihilation or victory. If we go on losing like this, we'll never return home
- 
-alive. Will I be questioned on my responsibility? Not likely. We'll all be dead. If we win, there's nothing to worry about because it was ordered from above." Welling up within myself I felt sentiments like "llow dare they bomb us! We can't give them special treatment just because they're prisoners. I can never forgive them."
- 
-When I appeared at my trial as a war criminal I didn't say that, of course. I said I had no choice but to obey orders. But the truth was, I wanted to kill them. Still, when I saw their faces, I pitied them. They were as young as ours. The soldiers who'd prepared the ground for the execution, and who'd dug the graves, all watched me. Saying this today I feel ashamed. I had a strange vanity. I didn't want to embarrass myself in front of the men. If I didn't make a good show of it, I'd be a laughing stock. If I analyze my psychology today, I would say I killed them because of that. They were very pale. Their eyes were blindfolded properly. You had to have an actual document, a written sentence and an order of execution, to do it. But there was no trial or hearing. I knew this was illegal, but I announced: "You have been sentenced to death." They asked, "Why?" If I'd listened to them, my own spirit would have been dulled, so holding my sword I made them kneel down.
- 
-There were three of them. We used our swords, because it was risky to use pistols. The sound of shooting could have stirred up the local residents. That's why we didn't use a firing squad. We took them deep into the mountains where not even the locals could observe us. Americans. Whites. Pilots. I don't remember their names. The ones who interrogated them surely must remember, though.
- 
-Why did we do this? Those who fell from the sky at the front all got killed. Their presence was undeniable evidence that Japanese forces were collapsing, and the Japanese commanders didn't want this known even among their own troops. I think that's why such killing took place. I suspect that such a policy was applied broadly, but I have no hard proof. But consider the fact that this happened all across the front. It can't have been due simply to spontaneous orders from the local commanders. Something had to have come from higher up. Yet, even today, field-grade officers and such never say anything disadvantageous to themselves. I sometimes have occasion to meet them, and I ask them while we're sharing sake, but they still won't speak of it.
- 
-The reason I didn't have my subordinates do it in my place was that all of them were former police officers. They had wives and children.They weren't young. I felt sorry for them. I felt it best for me to be the executioner. By the end, I feared the whole unit would be executed, but only two of my subordinates were tried. One was sentenced to death, but all the others made it home and got their old police jobs back. The one who was executed had killed by torture.
- 
-After the war, the Dutch did not charge those who had followed official military legal procedures carried out by the Japanese army and navy. They did not question them even if there were horrible things in the trials. And so, although the Dutch came to investigate these martial law sentences, they never filed complaints against me. Half of all the Navy Special Police units in the southern theater, commanders and simple unit members, were sentenced to death. This also showed that many cases did not go through proper trial procedures. Nevertheless, the Americans made me dig up the bones of the men I'd killed. When I did, they were still fresh, like corned beef, although it was nearly a year later. Horrible. I washed the bones, together with Chief Petty Officer Yoshizaki, who had assisted me.
- 
-Near the end, when we even had to grow our own food, we found ourselves fighting over local laborers, pulling them this way and that. The army tried to pinch ours, threatening to use the Kempeitai. Our food ration was reduced by forty percent. Half the unit worked to build military positions, the other half were farmers. We were really hungry, but we couldn't say so. We just had to endure. We paid local residents for their labor, but it was in military scrip, virtually worthless.
- 
-The navy had grudges against the army for not providing sufficient provisions. Right there at the front lines, the Japanese army and the navy fought just like enemies. Had the war gone on six months more, I'm sure they would have started shooting at each other, trying to grab the other's provisions. I myself felt the local Kempei unit had been acting outrageously. Cooking up false cases, just to get points for doing something. They were dragging in village heads one after the other. Calling them spies and then executing them.
- 
-Many of my fellow members in the Amboina War Comrades Association view me as someone who took all the responsibility and became a casualty or victim. Officers and men both think that of me. I don't ask them what they did on the islands, because each knows what he did. They don't speak about it, but they remember. It is not possible to forget. I ask them, "If foreign forces did what we did there, right here in Japan, wouldn't you be angry?" They often say they agree with me, but I don't know how they behave after leaving the meeting. I suspect many still fear that what they did at risk of their lives would become a disgrace if they admitted to themselves they were fighting a dirty, aggressive war.
- 
-GREATER EAST ASIA / 113
- 
-They deny what we actually did. I myself admit that the trials for our war crimes were good. What I went through was good. If I'd gone straight back home, forgiven for what I did, it would have been even more frightening for me. Had I gone right back, I would have probably run for the local assembly, become a local official and eventually a conservative party official whose reputation is marred by corruption. If what we did in the name of national egoism were to be accepted, that would be horrible. The leaders of Japan today are all of my generation.
- 
-Today, Japan's government justifies what the military did during those war years. I'm saying this because I'm receiving a pension today. The time I spent in Sugamo prison as a war criminal is included in my service. This is the Japanese state saying, "Thank you very much for your efforts. You acted for the sake of Japan." Although I was given thirty years by America for a crime I committed, it's treated as just a foreign sentence, unimportant. After I left Sugamo, nobody looked at me strangely.
- 
-"I've been back to Indonesia seven times. Indonesians try not to show us the war museums. If I specifically ask, they will take me, so I finally got to the Djakarta War Memorial, but I wasn't allowed to bring in a camera. They display many photographs of Japanese suppression of Indonesians during the war. Indonesian politicians today must go to the Japanese for economic aid, and they seem to feel it is just better to take the economic assistance and avoid disturbing the Japanese."Burdens of a Village Bride
- 
-TANAKA TOKI
- 
-The summer smell of the green rice paddies fills the air, which Inside the expansive house is stirred by a large fan working at full force. The house, near a small temple at the top of a steep path, seems to hang over the edge of the mountain. The house is nearly ringed by a stone and concrete pond full of young carp, her late husband's passion.
- 
-"When you think about it, I guess you'd say everybody had a rough time during the war. If you include my husband's brother, six men were killed in action from this one hamlet of Uebatake alone. There were thirty three households then." Both of her brothers died in the military. Iler's father was killed in an air raid.
- 
-Straight-backed at seventy-four years old, she moves with vigor, and speaks in the dialect of the region. Two American students from the University of California San Diego are enjoying a three-week "home stay" with the family.
- 
-I was twenty when I got married at the end of 1933. There weren' really love marriages then, just marriages between households. On January 20, my husband left for active duty. Went to China in April. Ile didn't even know when he departed that I was carrying our son. The bride was in a terrible position in those days. There were lots of children when I came to his family. I guess I was pretty stupid to come herel My husband's family had nine children. Six boys. He was the eldest. Then there were three young girls-ten, three, and one. I knew there were lots of them, but I didn't know how many. I soon gave birth to one of my own. My mother-in-law held all the money. Sometimes I had to go to my father's house to ask him for financial help. There just wasn't enough. During the winter I made straw rope to tie charcoal bags, and I made the bags themselves. In the summertime I raised silkworms. We had to do all that just to get money for so many children.
- 
-We hardly bought any food, but ate what we raised at home. Sometimes when a fishmonger came by we bought something. There weren't any shoes. During the winter, when there was deep snow, we made footwear for ourselves from rice straw. We picked fiddleheads and other wild vegetables and grew vegetables on our own land. We had to take care of ourselves. We didn't even have electricity in our village back then.
- 
-My father-in-law passed away, and my husband's grandfather the following year, so that left just my mother-in-law and me to take care of a large number of children and the temple. Somehow you had to find some way to earn cash. I worked in the paddies. It wasn't like now, with those big wide paddy fields. Then they were tiny ones, scattered all over in bits and pieces. We kept an ox. I can't really believe it when I think about it now. In the evening I worked as late as there was light to see. In the morning, one person fixed breakfast, while the other had to go out into the fields to work. Your man's in the army, not a single letter comes to you. You don't have the faintest idea where he is.
- 
-Then you had the National Defense Women's Association work, too. You had to send off the soldiers and welcome them back. And you had to volunteer to make money to send to the military. On the next mountain over, some of the men still left in the village were making charcoal. We'd go there and carry it down for them. We did things to comfort soldiers. We collected small things to send to them, bought canned goods, made "comfort bags" and wrote "comfort letters." We were the kind of people, so our handwriting was poor. While working on the second floor, I'd sometimes write a line or two for a comfort letter. I took a lot of time on even a single letter. They were going to soldiers from the hamlet. Because I was doing so much work outside the home, I had to ask my mother-in-law for permission, even though I had no choice about going or not going. I had to ask to be allowed to do anything. I wasn't free.
- 
-My second child was conceived in the tenth year of our marriage when my husband was home for a year or so, but she was still in my womb when he went back and he didn't know about her. When he returned to Kanazawa to pick up soldiers, or something, I went there to
- 
-LIFE GOES ON / 183
- 
-show him his thirty-day-old daughter. The trains were really crowded and there was no food. In those days, even a single apple was hard to get. I carried her on my back in a bitter-cold wind. Ile was already a noncommissioned officer, so he took lodgings for us for the night. IIe told me that because he was a very methodical man, he had risen high in the army. Besides that, I don't recall what we talked about. At that time, clothing was rationed. You could only buy so much per head, all determined by coupons. My husband had gotten coupons for me from some soldiers from Nagano who were still single. Thinking of that now brings tears to my eyes. It's slightly embarrassing. Ile bought me two pink underskirt with which he covered the baby on my back. Ile also bought a toy for her. We parted at Kanazawa Station. He went to the South. I could only cry on my way back.
- 
-Letters had come from him when he was in North China, but after he went to the South nothing came for about two years. I thought I had to be strong. If you let it beat you, then you'd lose out. With no men in the family, they'd make light of you. You're only a woman, they'd say. I didn't let that happen to me. I lived so that I couldn't be despised. You never know what people feel about you in their guts. "What's going to happen to that house?" they'd ask. "No letter from the Master. Maybe those women think he's still alive, but he can't be." People were saying things like that behind our backs, and sooner or later you'd hear about it. "I can't be defeated by other people," was what I thought. "I have to do more. I can't be beaten by this."
- 
-There were many hardships, but the hardest was to keep the family together. These days everybody's roof is made to shed the snow, but then all roofs were thick thatch, made of reeds. Ours was twelve ken long [nearly 24 yards). It was a tremendous job to gather enough thatch for it and one of the biggest causes of my worries. You had to prepare a huge supply of reeds, a tough job for a woman. First you cut them, then dried them, then bundled them. You piled them up there in the mountains. Later, you had to bring them down on your back, then haul them up and put them on the new roof. This had to be done in the autumn.
- 
-If you had a family with a man who hadn't gone to the front you were all right. But in those days, there weren't any families with men. Everybody was gone. A few families had an old man around, but they couldn't really help. There was only my mother-in-law and me. My father lived doep in the mountains. One year, I asked him to come and help us. Ile worked till nightfall and I remember him setting off for home in the darkness.
- 
-I had two brothers. One was in the army, a flight soldier. The other was in the navy, in the naval Special Attack forces. They sent him home to bid farewell to his brothers, sisters, and parents. IIe knew he was going to die. He'd be going down in a submarine, then he'd blow up. Ile was still unmarried. I'd gone back to my family home to talk to him. I knew it would be better if I could stay until he left, but I had obligations to my husband's house, so I returned and went to work early the next morning.
- 
-There was no bus service then, and no private motor cars, either. One truck went back and forth to the town of Inami with charcoal. The last time I saw my brother, he was leaving for his unit. I couldn't even send him off. I was too busy gathering thatch on the mountain. I could see him from where I was, but he didn't know that. I felt such compassion for my poor brother. It was awful. All alone there, I cried and cried. I could only stop at my work and watch him leave the mountain wearing his sailor uniform, sitting on top of a load of charcoal.
- 
-As the war dragged on, we attended the drills of the Reservists' Association. We practiced with bamboo spears on the schoolground under the blazing-hot sun. Some fainted because of the heat. Men made the spears for us and hung up dolls made of straw, shaped like men. We wrapped our heads with hachimaki and wore the sash of the National Defense Women's Association across our chests. We did our best. If you opposed anything about war, of course, you were a traitor. You had to say, "yes, yes," whatever the subject. But when I thought about my husband's hardship at the front, doing that much seemed natural.19/"A TERRIBLE NEW WEAPON"
- 
-T PRECISELY 8:15 A.M. on August 6, 1945, one of a group of three students of 8,500 meters. The bomb was three meters in length, 0.7 meters in diameter, and weighed 4 metric tons. It was detonated at an altitude of 590 meters. The fission of the 0.85 kilograms of uranium contained in the bomb released energy equivalent to the explosive force of 13,000 tons of TNT.
- 
-At the instant of the explosion, a fireball of several hundred thousand degrees centigrade formed, and 0.3 seconds later, the fireball attained a temperature on the surface of 7000 degrees centigrade. Intense thermal radiation was emitted by the fireball for three seconds after the explosion, and some continued to be emitted for about ten seconds. The tempera ture at hypocenter-the hypothetical point where the bomb would have hit the ground-rose from 3000 to 4000 degrees centigrade. Those exposed to the heat rays within one kilometer were killed by intense burns and the rupture of internal organs. Burns were caused to the bodies of those within 3.5 kilometers of the hypocenter, and clothes and wooden houses were ignited. A huge pillar of smoke and debris rose to a heightof 9,000 meters within eight minutes and formed a mushroom-shaped cloud visible many miles from the city.
- 
-An intense blast was also created at the Instant of the explosion. Theoretically, the blast at the hypocenter had a maximum blast pressure of 35 metric tons per square meter and a maximum velocity of 440 meters per second. At 1.3 kilometers from the hypocenter the blast attained a force of seven tons per square meter and a wind velocity of 120 meters per second. The explosive wind reached a distance of eleven kilometers about thirty seconds after the explosion. The blast stripped people of clothing, tore off burned skin, and ruptured the internal organs of some victims, and it drove glass and other debris into their bodies. Wooden buildings within a radius of 2.3 kilometers were leveled and over half of all such buildings within 3.2 kilometers were destroyed. Even concrete buildings near the hypocenter were smashed by the blast.The third major effect of the detonation after heat and blast was radiation. Gamma rays and neutrons einitted within one minute of the bombing inflicted a wide variety of physical damage to people as far as 2.3 kilometers from hypocenter. Those within one kilometer received intense radiation doses. Residual radiation caused many who entered the area within 100 hours of the explosion to suffer exposure to gamma rays.
- 
-Moisture condensing on rising ash and dust fell as the "black rain '' began falling within thirty minutes of the explosion and continued to come down for some ninety minutes. It contained huge amounts of radiation that damaged not only humans, but plants and animals as well, over a large area. Long-term effects of radiation, including diseases like leukemia and the development of cancers, are still claiming victims.
- 
-Estimates of deaths in the blasts themselves, once estimated at 78,000 in the case of Hiroshima and 27,000 in Nagasaki, are widely acknowledged to have been higher, but accurate figures for the numbers in the target cities have proven difficult to determine. It is estimated that by the end of December 1945, approximately 140.000 persons had died from effects caused by the single atomic bomb dropped on Hiroshima August 6. The blast in Nagasaki three days later had claimed 60,000 to 70,000 by year's end.Eight Hundred Meters from the Hypocenter
- 
-YAMAOKA MICHIKO
- 
-She is a hibakusha-one who was exposed to the atomic bomb. The term has come to be used frequently to specify this particular kind of victimization, as distinct from more general terms applied to those who suffered from the war. Persons registered with the Ministry of Health and Welfare are eligible to carry an "A-bomb notebook," which officially identifies them and today entitles them to receive the relief medical assistance avail able only to victims of the bomb.
- 
-We meet in a corner of a large room in the Hiroshima Peace Memorial Museum, a short walk from the Atomic Bomb Dome at the edge of the Peace Memorial Park. "These days I talk to groups of schoolchildren who come to Hiroshima. They seem to listen, but I fear that nobody really understands our feelings."
- 
-That year, on August 6, I was in the third year of girls' high school, fifteen years old. I was an operator at the telephone exchange. We had been mobilized from school for various work assignments for more than a year. My assigned place of duty was civilian, but we, too, were expected to protect the nation. We were tied by strong bonds to the country. We'd heard the news about the Tokyo and Osaka bombings, but nothing had dropped on Hiroshima. Japan was winning. So we still believed. We only had to endure. I wasn't particularly afraid when B-29s flew overhead.
- 
-That morning I left the house at about seven forty-five. I heard that the B-29s had already gone home. Mom told me, "Watch out, the B-29s might come again." My house was one point three kilometers from the hypocenter. My place of work was five hundred meters from the hypocenter. I walked toward the hypocenter in an area where all the houses and buildings had been deliberately demolished for fire breaks. There was no shade. I had on a white shirt and monpe. As I walked there, I noticed middle-school students pulling down houses at a point about eight hundred meters away from the hypocenter. I heard the faint sound of planes as I approached the river. The planes were tricky. Sometimes they only pretended to leave. I could still hear the very faint sound of planes. Today, I have no hearing in my left ear because of damage from the blast. I thought, how strange, so I put my right hand above my eyes and looked up to see if I could spot them. The sun was dazzling. That was the moment.
- 
-There was no sound. I felt something strong. It was terribly intense.
- 
-"A TERRIBLE NEW WEAPON" / 385
- 
-I felt colors. It wasn't hot. You can't really say it was yellow, and it wasn't blue. At that moment I thought I would be the only one who would die. I said to myself, "Goodbye, Mom."
- 
-They say temperatures of seven thousand degrees centigrade hit me. You can't really say it washed over me. It's hard to describe. I simply fainted. I remember my body floating in the air. That was probably the blast, but I don't know how far I was blown. When I came to my senses, my surroundings were silent. There was no wind. I saw a slight thread like light, so I felt I must be alive. I was under stones. I couldn't move my body. I heard voices crying, "Help Water!" It was then I realized I wasn't the only one. I couldn't really see around me. I tried to say something, but my voice wouldn't come out.
- 
-"Firel Run away! Help! Hurry up" They weren't voices but moans of agony and despair. "I have to get help and shout," I thought. The person who rescued me was Mom, although she herself had been buried under our collapsed house. Mom knew the route I'd been taking. She came, calling out to me. I heard her voice and cried for help. Our surroundings were already starting to burn. Fires burst out from just the light itself. It didn't really drop. It just flashed.
- 
-It was beyond my mother's ability. She pleaded, "My daughter's buried here, she's been helping you, working for the military." She convinced soldiers nearby to help her and they started to dig me out. The fire was now blazing. "Woman, hurry up, run away from here," soldiers called. From underneath the stones I heard. the crackling of flames. I called her, "It's alright. Don't worry about me. Run away." I really didn't mind dying for the sake of the nation. Then they pulled me out by my legs.
- 
-Nobody there looked like human beings. Until that moment I thought incendiary bombs had fallen. Everyone was stupefied. Humans had lost the ability to speak. People couldn't scream, "It hurts!" even when they were on fire. People didn't say, "It's hot!" They just sat catching fire.
- 
-My clothes were burnt and so was my skin. I was in rags. I had braided my hair, but now it was like a lion's mane. There were people, barely breathing, trying to push their intestines back in. People with their legs wrenched off. Without heads. Or with faces burned and swollen out of shape. The scene I saw was a living hell.
- 
-Mom didn't say anything when she saw my face and I didn't feel any pain. She just squeezed my hand and told me to run. She was going to go rescue my aunt. Large numbers of people were moving away from the flames. My eyes were still able to see, so I made my way towards the mountain, where there was no fire, toward Hijiyama. On this flight I saw a friend of mine from the phone exchange. She'd been inside her house and wasn't burned. I called her name, but she didn't respond. My face was so swollen she couldn't tell who I was. Finally, she recognized my voice. She said, "Miss Yamaoka, you look like a monster!" That's the first time I heard that word. I looked at my hands and saw my own skin hanging down and the red flesh exposed. I didn't realize my face was swollen because I was unable to see it.
- 
-The only medicine was tempura oil. I put it on my body myself. I lay on the concrete for hours. My skin was now flat, not puffed up anymore. One or two layers had peeled off. Only now did it become painful. A scorching sky was overhead. The flies swarmed over me and covered my wounds, which were already festering. People were simply left lying around. When their faint breathing became silent, they'd say, "This one's dead," and put the body in a pile of corpses. Some called for water, and if they got it, they died immediately.
- 
-Mom came looking for me again. That's why I'm alive today. I couldn't walk anymore. I couldn't see anymore. I was carried on a stretcher as far as Ujina, and then from there to an island where evacuees were taken. On the boat there I heard voices saying, "Let them drink water if they want. They'll die either way." I drank a lot of water.
- 
-I spent the next year bedridden. All my hair fell out. When we went to relatives' houses later they wouldn't even let me in because they feared they'd catch the disease. There was neither treatment nor assistance for me. Those people who had money, people who had both parents, people who had houses, they could go to the Red Cross Hospital or the Hiroshima City Hospital. They could get operations. But we didn't have any money. It was just my Mom and I. Keloids covered my face, my neck. I couldn't even move my neck. One eye was hanging down. I was unable to control my drooling because my lip had been burned off. I couldn't get any treatments at a hospital, so my mother gave me massages. Because she did that for me, my keloids aren't as bad as they would have been. My fingers were all stuck together. I couldn't move them. The only thing I could do was sew shorts, since I only needed to sew a straight line. I had to do something to earn money.
- 
-The Japanese government just told us we weren't the only victims of the war. There was no support or treatment. It was probably harder for my Mom. Once she told me she tried to choke me to death. If a girl has terrible scars, a face you couldn't be born with, I understand that even a mother could want to kill her child. People threw stones at me and called me Monster. That was before I had my many operations. I only, showed this side of my face, the right hand side, when I had to face someone. Like I'm sitting now.A decade after the bomb, we went to America. I was one of the twenty-five selected by Norman Cousins to be brought to America for treatment and plastic surgery. We were called the Hiroshima Maidens. The American government opposed us, arguing that it would be admitting a mistake if they admitted us to America, but we were supported by many civilian groups. We went to Mount Sinai Hospital in New York and spent about a year and a half undergoing treatment. I improved tremendously. I've now had thirty-seven operations, including efforts at skin grafts. When I went to America I had a deep hatred toward America. I asked myself why they ended the war by a means which destroyed human beings. When I talked about how I suffered, I was often told, "Well, you attacked Pearl Harbor!" I didn't understand much English then, and it's probably just as well. From the American point of view, they dropped that bomb in order to end the war faster, in order to create more damage faster. But it's inexcusable to harm human beings in this way. I wonder what kind of education there is now in America about atomic bombs. They're still making them, aren't they? Meeting at Yasukuni Shrine
- 
-KIYAMA TERUMICHI
- 
-Located a short walk from the moat surrounding the Imperial Palace, Yasukuni Shrine is an oasis of green in the concrete, steel, and asphalt of Tokyo. Two enormous torii arches soar over the expansive path coming up the hill from Kudanshita. Tall trees rise on both sides. The particular. The almost indescribable sound of feet treading on the small stones of the pathway accompanies one all the way to the wooden entrance doors of the Outer Shrine gate. These bear the Imperial crest in gold. Suspended beneath the Outer Shrine's massive copper roof is the sixteen-petaled Imperial chrysanthemum on a white cloth. Beyond is the Inner Shrine.
- 
-The people who make their way to and from the shrine today are few in number, and most seem very old, their backs bent and their gaits unsteady. Except for the two black sound trucks bearing the names and slogans of right-wing patriotic organizations parked next to two huge tourist buses in a lot near the path, there are no obvious signs that the shrine is a place of controversy. Yet, since 1945 it has been at the center of often heated political arguments about the relationship between religion and the state in a democracy, centering on the role this shrine played in the last war as the resting place of the "guardian gods''-those military men who had given their lives in service of their Emperor.Founded in 1869 to enshrine the 6,971 who had fallen in the then recent war that ended the Tokugawa Shoguns rule and brought the Imperial family to power in the Meiji Restoration, it was given the name Yasukuni Jinja in 1879. Yasukuni means "To govern the state peacefully." As the place where all those who have perished in war to defend the Imperial state were enshrined, it became one of the most important symbols of the then official Japanese religion of State Shinto. The war dead were enshrined as kami, meaning gods or spirits. Beginning with the Emperor Meiji, the "living god," the reigning Emperor, paid tribute to them personally. In the Second World War, to be enshrined at Yasukuni and prayed to by His Imperial Majesty was considered the highest honor that could be bestowed on a loyal subject. According to the figures provided by the Shrine, 2,465,138 "pillars' ' were enshrined here as of 1987. Of these, 191,074 were from the China Incident and 2,132,699 were from the Greater East Asia War.
- 
-The Yushukan, a memorial hall, was established in 1881 to exhibit items related to Japan's Imperial history. It was largely destroyed in the Great Kanto Earthquake of 1923, but rebuilt in 1931 at the present site. It was reopened in 1986, after having been used for company offices after 1945. It now contains about 30,000 historical documents or items for display. Among the more spectacular are an actual Kaiten-a human torpedo, on loan from the American Army Museum in Hawaii-an Öka (Cherry Blossom) rocket-powered piloted flying bomb, a diorama showing the Thunder God squadron approaching Okinawa for their final attack, a Type-97 medium tank used on Saipan, and C-5631, a locomotive used on the Burma-Siam railway.
- 
-Deputy High Priest Kiyama is the Gon-no-Güji, the second-ranking official of Yasukuni Shrine. He wears a purple hakama over a pure white kimono. His office is completely Western in style. Behind his large desk is an immaculately clean glass wall, brilliant in sunlight with the autumn leaves flashing outside. The door to the hallway remains open and people pass by carrying on hushed conversations. He speaks in a voice damped down and under control. During the war he was an army air-corps reserve officer. He was in Indonesia at the end.
- 
-The Yasukuni Shrine has followed a policy of not agreeing to interviews by journalists. The rationale for this policy is that the fundamental reason for the existence of the shrine is simply to pray to the gods.
- 
-Yasukuni Jinja Yüshükan, ed., Yasukuni Jinja Yüshükan, Shaho to sembotsusha no tho (Yasukuni Jinja Yushukan, Shrine Treasures and Articles Left Behind by the War Dead.] Tokyo: 1987. p. 3
- 
-REFLECTIONS / 4
- 
-If we do anything else, we find ourselves involved in various political issues. After the defeat in the war, relations between Yasukuni and the state and between the shrine and the people's consciousness have been treated as if they were political issues. When the prime minister comes here to pray, it becomes an issue whether he's at the shrine as a private or a public personage. From the Yasukuni Shrine's perspective, it is our intent to be involved in political issues. We merely pray and express our thanks to the spirits. So I will not discuss the true essence of the rit of the shrine, or how the state is involved, or the shrine's relation to the Imperial family, for the reasons I have given. I am able to speak about my own personal experiences, as distinct from my position.
- 
-In yesterday's evening edition of the Sankei newspaper, a letter appeared in the "Hot Line" column addressing the issues of why people might wish to visit Yasukuni Shrine. The writer, a former medic, sixty seven years old, was at the front on the Chinese continent. The watch word of his unit's war-comrade association has been, "Meet you s Yasukuni," and they have been meeting annually at the shrine. This year about three hundred of them gathered here in October. During the meeting, he says, in the shrine waiting room he met an old woman eighty-four years old, to be exact, and the bride of her eldest son. They were from Saga prefecture, Kyushu. Her daughter had gone to the front as a military nurse and died on her repatriation trip to Japan after the war, at the age of twenty-one. IIer second son died in action in the South Because of her age, the author believed this would be her last visit to Yasukuni Shrine. The old woman tells him how good it was of the bride to bring her, and how indebted she feels to her. The bride speaks quietly about it, saying only, "It is so natural to accompany her." The letter writer comments on how warm and confronted he felt to meet a person who still so wants to come to Yasukuni from so far away, at such an age.
- 
-In an ordinary family today, even if the old man has this desire, the young bride will oppose him. She'll just say, "Oh? So you were a victim of the war," and she'll criticize the war. "If you have that kind of money. buy toys for your grandkids." That's the typical Japanese family, today. But this Saga family! Supporting an old woman's wish! They're probably a Buddhist family. They have their own family temple, and I'm sure they have a Buddhist service at O-Bon [the festival of the Dead]. Yet they have the consciousness that the spirit of her daughter and her second son remain in Yasukuni Shrine.
- 
-War-bereaved families come here, pay reverence at the Outer Shrine, then proceed to the Inner Shrine, where the spirits reside. There they call out, "My son, I'm here." They believe they are able to communicate directly with their dead ones. To express their feelings of gratitude,they come from far away and present the harvest of their land to them. It's as if living people are here. Don't you see? It's not a matter of religion anymore. Normally speaking, shrines conflict with temples, or exist parallel to churches. Normally, they're of this or that faith, this or that sect, this or that founder, text, secret scripture, and that's what the believers pray. But these people who come here are not thinking of secret scriptures. The sentiments of those who come to Yasukuni Shrine and of those who serve here are not religious.
- 
-I attend the rites. I often speak with such people. I myself was in the military. My war comrades and my seniors at school all perished, too. When I meet these people, I always feel I might be meeting one of their family members. I know their friends, their families, their subordinates are enshrined here. I myself am alive only by accident. If I were dead, of course, I would have been enshrined here. When I am here, the difference between the living "I" and my enshrined war comrades disappears. When these people come to worship, I feel that they might have been coming to greet me. I welcome them with that kind of deep thought. That is why the shrine values such people so highly. I deeply understand their feelings and their memories of a young daughter, a young son, who remains unchanged. I am sure that their youthful pictures are placed on the Buddhist altars in their homes. While meeting these people, I realize how serving here fills my own heart.
- 
-I dress as a Shinto priest and I conduct the rites. Sometimes various arguments are stirred up about those rites that they are Shinto rites and Shinto is a religion-so they say. They claim that Yasukuni is one sect within a religion, but we don't think that way. We simply welcome worshipers who come here with a certain set of feelings. When we talk to those who come, we mainly speak of their remembrances. How their sons went in good spirits, or how their grandchildren are doing today. The talk rambles. Sometimes, I even meet those who were in the same war zone as I was. I'm now getting old myself, of course, but when I was younger and met my parents, they would sometimes look and speak with me as if I were their son. We want them to return home satisfied.
- 
-Some people misrepresent the Yüshükan as a war museum. In that war, teenagers and youths in their twenties perished. We are trying to decorate it with testaments written by, clothes worn by, and relics of those who perished. We endeavor to provide a background explanation for each. A human being does not have two lives. A single valuable life is extinguished in that exercise of national state authority called "war," today, just as in ancient times, in the East as in the West. To perish in war is a tragic thing, but if you assume that their spirit remains behind,
- 
-REFLECTIONS / 451
- 
-then it's your duty to comfort them to the greatest extent possible. Criticism of the war comes from a time after they perished for that state-society. So we still must express our gratitude to and worship them. Today, fifty of us, including the head priest and the miko (vestals], have to pray to make their minds rest easily. In the world after death, they must rest as if they had died among their loved ones.
- 
-We Japanese have always been this way. Even in civil wars, battles between daimyo, they built tombstones or five-tiered gravestones for the dead, whether friend or foe. We can still view those ancient ones in the form of stone Buddhas-we Japanese have been carrying out this practice for years, just as we have been eating rice. This custom was given a national form in the Meiji period when Yasukuni Shrine was established. These feelings are connected to the deepest emotions of the Japanese. This way of living, this way of thinking, is deeply rooted in this nation. As long as we continue to live according to a Japanese way, this will not change.
- 
-Before and during the war, Shinto shrines belonged to the country. Kokka Shinto [State Shinto], it was called. The state was deeply involved, so priests were officials. I myself studied at the Jingü Kögakukan, in Ise City, where they trained both people to serve the gods and teachers for girls' schools, middle schools, and normal schools. My father was a priest for the gods, but I was going to be a history teacher.
- 
-We students never really argued about the war among ourselves. We accepted it as it was, part of one great flow. We never thought differently about it. We youths had to go. The education we had received up to that point was completely dedicated to that principle. Today, there are multiple values, many parallel views of life and the world. You can think objectively, but then this wasn't so. Since Meiji times, Japan has been advancing in that direction. In order to enrich the nation, Japan had to strengthen the army. Population increased, so to increase the nation's productive capacities, the country had to expand. For the sake of the development of the race. All nations of the world would have done this. Japan was not the only nation that expanded aggressively. We were already moving in that direction. There was an ideology that served to justify this course of action. There were some partially developed ideas that conflicted with that notion, but they were merely bubbles in the
- 
-great stream. When we were ready to graduate from school in 1942, we thought, "Let's go!" For the sake of the nation, for the sake of the government. 1. who was studying history, look back now and recognize that that was only one way to view things historically, but at that time we all looked and said, "Japan must take this course." Today, were my child to say, "I want to enter the military." I would reply, "Don't do it!" Of course. But at that time we didn't have that kind of choice. We only had one course open to us.
- 
-I was in the air corps, myself. I went to China, Manchuria, Manila, Luzon, the Celebes, Makassar, Java, and finally Bandung. I faced many, many occasions where I survived just by going one way rather than the other. Those days were full of hostility and hatred toward the enemy. We didn't know much about America. They were simply "the enemy." It didn't occur to us that behind the enemy there were governments, people, Christians, anything. We just thought, "they are here, we must fight them." We had no knowledge of how America was founded. What races made up America. Nothing. We just had the expression "Kichiku Bel-Et '' -American-English Demons. We saw them as lower animals. These terms were widespread in Japan. We would be invaded. Persecuted. Made to suffer. The race called "Japan '' would be extinguished. That's the way we felt.
- 
-August 15, 1945. The Imperial Rescript came through by telegram. We all lamented the situation. The feeling that Japan faced extinction was very strong. The education I received would disappear. I drove a car up to the top of the mountain in Bandung [Indonesia], where the best astronomical observatory in Asia was located. I took my pistol with me. I really don't like to mention this. I thought Japan was done for. My life was over. I lay down on the lawn. The stars were unbelievable, overwhelming. While I was looking at the Southern Cross, the image of the shrine at Ise appeared to me. Speaking religiously, I was saved by the gods. I came down the mountain. Even today, I believe the gods of Ise called me back, "Don't throw your life away." I was a twenty-four-year-old army second lieutenant.
- 
-I feel my wartime experiences were my most valuable experiences. I dream of them even today. They are that deeply etched in my mind. I still see myself walking in Manila or driving a car in Java. I've been at Yasukuni for more than thirty years now and pretty soon I must face my retirement age. I was in the war, and I have prayed for the war dead since my return. I suppose I've been dragging the war with me all my life.
- 
-There are two million four hundred sixty-five thousand pillars of the nation enshrined here, including some from even before the Meiji Restoration, some dating back to the time when the American Commander Perry appeared off Uraga. The patriot Yoshida Shōin is here. Only the Self-Defense Forces who die on active duty do not meet our criteria. This means the list of those enshrined ends with the ones who perished in the last Pacific War.
- 
-REFLECTIONS / 453
- 
-Originally, the state established Yasukuni Shrine at the direction of the Meijl Emperor, but today it has nothing to do with the state. Under the new constitution, the state and belief are separate matters. It is not correct to say that the Emperor does not come here to pray. Though He has not done us the honor of an Imperial visit recently, the Imperial Envoy appears at the spring and autumn festivals, in proper formal attire, bringing offerings from the Emperor. Every year, twice a year, without fail. Besides, imperial family members come on their own. An emperor's last visit was in 1977.
- 
-We have eight million worshipers annually. I can probably classify them into three types. First are the mere sightseers. Then there are the war comrades and the bereaved families. Naturally, each year, membership in their associations has been dwindling. Then there is a third group, those who come here in search of some meaning. There are many in that category who feel we have to appreciate the war dead because they perished for the sake of the nation. To convey that message to history, to enshrine the war dead here means to them an assurance of the resurrection of the Japanese mind and spirit. They feel they must do that. People who have been thinking like that ideologically come here. Their numbers have gradually been increasing. Education has accomplished this.
- 
-Today, young people come here. I see many in the Yüshükan, although today's Japan Teachers' Association has, up to now, taught that war is wrong. So they say those who died in war should just be thrown out. They have raised today's youth with those ideas. Yet despite that, quite a few youths come here to worship. Japan has established economic stability. As its educational system undergoes changes, I think the feeling that we have to value the war dead more highly will spread more and more widely. I think the official approval of textbooks exists so that there will be no mistaken schoolbooks. If a time comes when education rooted in Japanese tradition can be established, I believe the number who feel this way will grow.
- 
-Lessons
- 
-MOGAMI SADAO [2]
- 
-A 1940 graduate of the Air Officers' School of the Japanese military academy, he was a captain on the staff at central air headquarters in Tokyo, assigned as adjutant to Prince Mikasa. He was a fighter pilot, grounded by illness in the bitter last stages of the war and the futile defense of Japanese airspace, when it all ended in 1945.
+II. Chief of Security Police and Security Service, SS-Lieutenant General Heydrich, opened the meeting by informing everyone that the Reich Marshal [Göring] had placed him in charge of preparations for the final solution of the Jewish question, and that the invitations to this conference had been issued to obtain clarity in fundamental questions. The Reich Marshal's wish to have a draft submitted to him on the organizational, functional, and material considerations aimed at a final solution of the European Jewish question requires that all of the central agencies, which are directly concerned with these problems, first join together with a view to parallelizing their lines of action.
+
+The implementation of the final solution of the Jewish question is to be guided centrally without regard to geographic boundaries from the office of the Reichsführer-SS and Chief of the German Police (Chief of Security Police and Security Service).
+
+The Chief of Security Police and Security Service then reviewed briefly the battle fought thus far against these opponents. The principal stages constituted
+
+a) Forcing the Jews out of individual sectors of life [Lebens gebiete] of the German people
+
+b) Forcing the Jews out of the living space [Lebensraum] of the German people
+
+In pursuance of this endeavor, a systematic and concentrated effort was made to accelerate Jewish emigration from Reich territory as the only temporary solution possibility. On instructions of the Reich Marshal, a Reich Central Office
+
+for Jewish Emigration was established in January, 1939, and its direction was entrusted to the Chief of the Security Police and Security Service. In particular the office had the task of a) taking every step to prepare for a larger volume of Jewish emigration,
+
+b) steering the flow of emigration,
+
+c) expediting emigration in individual cases.
+
+The goal of the task was to cleanse the German living space of Jews in a legal manner.
+
+The disadvantages brought forth by such forcing of emigration were clear to every agency. In the meantime, however, they had to be accepted for the lack of any other solution possibility.
+
+The migration work in the ensuing period was not only a German problem, but also one that concerned the offices of the countries of destination and immigration. Financial difficulties, such as increasingly demanding regulations on the part of various foreign governments for money to be shown by the immigrant or to be paid by him on landing, insufficient berths on ships, constantly increasing immigration restrictions and suspensions-all this placed extraordinary burdens on emigra tion efforts. In spite of these difficulties, some 537,000 Jews were moved out from the day of the seizure of power to October 31, 1941. Of this total
+
+from January 30, 1933 out of the Old Reich ca. 360,000
+
+from March 15, 1938 out of Austria
+
+from March 15, 1939 out of the Protectorate
+
+Bohemia and Moravia
+
+ca. 147,000
+
+ca.
+
+30,000
+
+The emigration was financed by the Jews (or Jewish political organizations) themselves. In order to avoid having a residue of proletarianized Jews, the Jews with means had to finance the departure of the Jews without means; an appropriate assessment and emigration tax were used to finance the payments of debts owed by the poor Jews in the course of their emigration.
+
+In addition to this levy in Reichsmark, foreign currencies were required for showing or payment on landing. In order to spare German foreign currency reserves, the Jewish financial institutions abroad were called upon by Jewish organizations at home to take care of the collection of an appropriate foreign currency pile. In this manner about $9,500,000 were made available through these foreign Jews as gifts to October 30, 1941.
+
+Meanwhile, in view of the dangers of emigration in time of war and in view of the possibilities in the east, the Reichsfüh rer mathcal SS and Chief of the German Police [Himmler] has forbidden the emigration of Jews.
+
+III. In lieu of emigration, the evacuation of the Jews to the east has emerged, after an appropriate prior authorization by Führer [Hitler], as a further solution.
+
+While these actions are to be regarded solely as temporary measures, practical experiences are already being gathered here which will be of great importance during the coming final solution of the Jewish question.
+
+Around 11 million Jews are involved in this final solution of the Jewish question. They are distributed as follows among individual countries:
+
+B.
+
+Bulgaria
+
+48,000
+
+England
+
+Finland
+
+2,300
+
+Ireland
+
+4,000
+
+Italy, including Sardinia
+
+58,000
+
+Albania
+
+200
+
+Croatia
+
+40,000
+
+Portugal
+
+3,000
+
+Roumania, including Bessarabia
+
+342,000
+
+Sweden
+
+8,000
+
+Switzerland
+
+18,000
+
+Serbia
+
+10,000
+
+Slovakia
+
+88,000
+
+Spain
+
+6,000
+
+Turkey (European portion)
+
+55,500
+
+Hungary USSR
+
+742,800
+
+Ukraine
+
+2,994,684
+
+White Russia, excluding
+
+Bialystok
+
+446,484
+
+Total: over 11,000,000
+
+So far as the Jews of the various foreign countries are con-. cerned, the numbers listed include only Jews by religion, since definitions of Jews according to racial principles are in part
+
+still lacking there. Given prevailing attitudes and conceptions, the treatment of the problem in individual countries will encounter certain difficulties, especially in Hungary and Rou mánia. For example, even today a Jew in Roumania can buy for cash appropriate documents officially certifying him in a foreign nationality.
+
+The pervasive influence of Jewry in the USSR is known. The European area contains some 5 million, the Asian barely a half million Jews.
+
+The occupational distribution of Jewry in the European area of the USSR was approximately as follows:agriculture
+
+9.1%
+
+urban workers
+
+trade
+
+14.8% 20.0%
+
+23.4%
+
+32.7%
+
+state employees
+
+private professions medical, press, theater, and so forth
+
+In the course of the final solution, the Jews should be brought under appropriate direction in a suitable manner to the east for labor utilization. Separated by sex, the Jews capa ble of work will be led into these areas in large labor columns to build roads, whereby doubtless a large part will fall away through natural reduction.
+
+The inevitable final remainder which doubtless constitutes the toughest element will have to be dealt with appropriately, since it represents natural selection which upon liberation is to be regarded as a germ cell of a new Jewish development. (See the lesson of history.)
+
+In the course of the practical implementation of the final solution, Europe will be combed from west to east. If only because of the apartment shortage and other socio-political necessities, the Reich area-including the Protectorate of Bohemia and Moravia-will have to be placed ahead of the line.
+
+For the moment, the evacuated Jews will be brought bit by bit to so-called transit ghettos from where they will be transported further to the east.
+
+SS-Lieutenant General Heydrich pointed out further that an important prerequisite for the evacuation in general was the exact specification of the category of persons liable to be involved.
+
+It is intended not to evacuate Jews over 65, but to transfer them to an old people's ghetto (the plan calls for Theresien stadt).
+
+In addition to these age groups-some 30% of the 280,000 Jews who lived in the Old Reich and Austria on October 1,
+
+1941, are over 65-the old people's ghetto will receive badly invalided Jewish war veterans and Jews with war decorations (Iron Cross First Class). Many intercessions will be eliminated in one blow by means of this purposeful solution.
+
+The start of major individual evacuation operations will depend in large measure on military developments. With regard to the treatment of the final solution in European areas occupied or influenced by us, it was proposed that the appropriate specialists of the Foreign Office get together with the experts having jurisdiction in these matters within the Security Police and Security Service.
+
+In Slovakia and Croatia the situation is no longer all that difficult, since the essential key questions there have already been resolved. Meanwhile, the Romanian government has already appointed a plenipotentiary for Jewish affairs. To set tle the matter in Hungary, it will be necessary before long to impose upon the Hungarian government an adviser on Jewish
+
+questions.
+
+Regarding a start of preparations in Italy, SS-Lieutenant General Heydrich considers it appropriate to contact Police Chief [Himmler].
+
+In occupied and unoccupied France, the seizure of Jews for evacuation should in all probability proceed without major difficulty.
+
+Assistant Secretary Luther [Foreign Office] then pointed out that with a deeply penetrating treatment of these problems in some countries, such as the Nordic states, difficulties would emerge and that meanwhile it would therefore be best to hold these countries in abeyance. In view of the insignificant number of Jews involved there, the postponement would not amount to a substantial restriction. On the other hand, the Foreign Office sees no major difficulties in southeastern and western Europe.
+
+SS-Major General Hofmann intends to dispatch a specialist of the Race and Resettlement Office for general orientation to Hungary as soon as the Chief of Security Police and Security Service is about to tackle the situation over there. It was decided that temporarily the specialist of the Race and Resettlement Office-who is not to become active-should be officially attached as an assistant to the Police Attaché.
+
+IV. The Nuremberg laws should constitute the basis, so to speak, of the final solution project, while a solution of the mixed marriage and mixed parentage questions is a prerequisite for the complete purification of the problem.
+
+The Chief of the Security Police and Security Service ad dressed himself to a letter of the Chief of the Reich Chancellery, and speaking theoretically for the moment, dealt with the following points:
+
+1. Treatment of Mischlinge of the 1st degree
+
+In view of the final solution of the Jewish question Mischlinge of the first degree are placed into the same position as Jews.
+
+To be excepted from this treatment will be
+
+a) Mischlinge of the 1st degree married to Germans, if this marriage produced offspring (Mischlinge of the 2nd de
+
+gree). These Mischlinge of the 2nd degree are in the main placed into the same position as Germans.
+
+b) Mischlinge of the 1st degree who in some (vital) area have been accorded exceptional treatment by the higher authorities of the party or state. Each individual case has to be examined anew, whereby one must not exclude an unfavorable decision for the Mischling.
+
+Prerequisite for an exemption must always be basic merits of the Mischling himself (not merits of the German parent or marital partner).
+
+To avoid any progeny and to clean up the Mischling problem once and for all, the Mischlinge of the 1st degree who are to be exempted from evacuation must be sterilized. Sterilization is voluntary, but it is a prerequisite for remaining in the Reich. The sterilized "Mischling '' is then liberated from all the constricting ordinances to which he has heretofore been subjected.
+
+2. Treatment of Mischlinge of the 2nd degree In principle, the Mischlinge of the 2nd degree will be treated as Germans, with the exception of the following cases
+
+in which Mischlinge of the 2nd degree will be placed into the same position as Jews:
+
+a) The descent of the Mischling of the 2nd degree from a bastard marriage (both parts Mischlinge).
+
+b) Racially exceptionally poor appearance of the Misch ling of the 2nd degrée, so that for external reasons alone he has to be considered a Jew.
+
+c) A particularly unfavorable appraisal from a police and political viewpoint which indicates that the Mischling of the 2nd degree feels and behaves like a Jew.
+
+Even these considerations, however, should not apply if the Mischling of the 2nd degree is married to a German. 3. Marriages between full Jews and Germans
+
+In individual cases, it must be decided whether the Jewish partner is to be evacuated or whether, considering the effect of such a measure on the German relatives, he is to be transferred to an old people's ghetto.
+
+4. Marriages between Mischlinge of the 1st degree and Germans
+
+a) Without children:
+
+If there are no children, the Mischling of the 1st degree is to be evacuated, or transferred to an old people's ghetto (same treatment as in the case of marriages
+
+between full Jews and Germans, point 3).
+
+b) With children:
+
+If there are children (Mischlinge of the 2nd degree) and they are placed into the same position as Jews, they will be evacuated along with the [parent who is al Mischling of the 1st degree, or transferred to a ghetto. Insofar as these children are placed into the same position as Germans (the regular case) they are to be exempted from evacuation, and so will [the parent who is a] Mischling of the 1st degree.
+
+5. Marriages between Mischlinge of the 1st degree and Mischlinge of the 2nd degree or Jews
+
+In the case of these marriages, all the elements (including the children) are to be treated as Jews and hence evacuated, or transferred to an old people's ghetto. 6. Marriages between Mischlinge of the 1st degree and Mischlinge of the 2nd degree
+
+Both partners, without regard to children, are to be evacuated, or placed into an old people's ghetto, since racially the children, if any, regularly reveal a stronger Jewish blood component than do Mischlinge of the 2nd degree.
+
+SS-Major General Hofmann is of the view that one will have to make widespread use of sterilization, especially since the Mischlinge, faced with the choice of being evacuated or sterilized, would rather submit to sterilization.
+
+Undersecretary Dr. Stuckart [Interior Ministry} stated that in this form the practical implementation of the possibilities just mentioned for cleaning up the mixed marriage and mixed parentage problem would entail an endless administrative task. In order to be sure, however, of taking into account also the biological facts, Undersecretary Dr. Stuckart proposed to proceed with compulsory sterilization.
+
+To simplify the Mischling problem, one should further think about the possibility of enabling the lawmaker to say in so many words: "These marriages are dissolved."
+
+As for the effect of the evacuation of the Jews on economic life, Undersecretary Neumann [Four Year Plan] declared that at the moment Jews employed in important war work could not be evacuated until replacements became available.
+
+SS-Lieutenant General Heydrich pointed to the fact that in accordance with directives authorized by him for current evacuations, these Jews were not being evacuated anyhow.
+
+Undersecretary Dr. Bühler stated that the General Government [of Poland] would welcome the start of the final solution of this question in its territory, since the transport problem was no overriding factor there and the course of the action would not be hindered by considerations of work utilization. Jews should be removed from the domain of the General Government as fast as possible, because it is precisely here that the Jew constitutes a substantial danger as a carrier of epidemics and also because his continued black market activities create constant disorder in the economic structure of the country. Moreover, the majority of the
+
+2½ million Jews involved were not capable of work.
+
+Undersecretary Dr. Bühler stated further that the Chief of the Security Police and Security Service was in charge of the final solution of the Jewish question in the General Government and that his work was being supported by the offices of the General Government. He only had one favor to ask: that the Jewish question in this territory be solved as rapidly as possible.
+
+Finally there was a discussion of the various types of solution possibilities, with both Gauleiter Dr. Meyer and Under secretary Dr. Bühler expressing the view that they could carry out certain preparatory measures in their territories on their own, provided, however, that any disturbance of the [non Jewish] population had to be avoided.
+
+The conference was closed with a plea of the Chief of Security Police and Security Service for the cooperation of all the participants in the implementation of the solution tasks.
