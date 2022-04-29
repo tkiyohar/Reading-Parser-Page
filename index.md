@@ -1,251 +1,66 @@
-II. Chief of Security Police and Security Service, SS-Lieutenant General Heydrich, opened the meeting by informing everyone that the Reich Marshal [Göring] had placed him in charge of preparations for the final solution of the Jewish question, and that the invitations to this conference had been issued to obtain clarity in fundamental questions. The Reich Marshal's wish to have a draft submitted to him on the organizational, functional, and material considerations aimed at a final solution of the European Jewish question requires that all of the central agencies, which are directly concerned with these problems, first join together with a view to parallelizing their lines of action.
-
-The implementation of the final solution of the Jewish question is to be guided centrally without regard to geographic boundaries from the office of the Reichsführer-SS and Chief of the German Police (Chief of Security Police and Security Service).
-
-The Chief of Security Police and Security Service then reviewed briefly the battle fought thus far against these opponents. The principal stages constituted
-
-a) Forcing the Jews out of individual sectors of life [Lebens gebiete] of the German people
-
-b) Forcing the Jews out of the living space [Lebensraum] of the German people
-
-In pursuance of this endeavor, a systematic and concentrated effort was made to accelerate Jewish emigration from Reich territory as the only temporary solution possibility. On instructions of the Reich Marshal, a Reich Central Office
-
-for Jewish Emigration was established in January, 1939, and its direction was entrusted to the Chief of the Security Police and Security Service. In particular the office had the task of a) taking every step to prepare for a larger volume of Jewish emigration,
-
-b) steering the flow of emigration,
-
-c) expediting emigration in individual cases.
-
-The goal of the task was to cleanse the German living space of Jews in a legal manner.
-
-The disadvantages brought forth by such forcing of emigration were clear to every agency. In the meantime, however, they had to be accepted for the lack of any other solution possibility.
-
-The migration work in the ensuing period was not only a German problem, but also one that concerned the offices of the countries of destination and immigration. Financial difficulties, such as increasingly demanding regulations on the part of various foreign governments for money to be shown by the immigrant or to be paid by him on landing, insufficient berths on ships, constantly increasing immigration restrictions and suspensions-all this placed extraordinary burdens on emigra tion efforts. In spite of these difficulties, some 537,000 Jews were moved out from the day of the seizure of power to October 31, 1941. Of this total
-
-from January 30, 1933 out of the Old Reich ca. 360,000
-
-from March 15, 1938 out of Austria
-
-from March 15, 1939 out of the Protectorate
-
-Bohemia and Moravia
-
-ca. 147,000
-
-ca.
-
-30,000
-
-The emigration was financed by the Jews (or Jewish political organizations) themselves. In order to avoid having a residue of proletarianized Jews, the Jews with means had to finance the departure of the Jews without means; an appropriate assessment and emigration tax were used to finance the payments of debts owed by the poor Jews in the course of their emigration.
-
-In addition to this levy in Reichsmark, foreign currencies were required for showing or payment on landing. In order to spare German foreign currency reserves, the Jewish financial institutions abroad were called upon by Jewish organizations at home to take care of the collection of an appropriate foreign currency pile. In this manner about $9,500,000 were made available through these foreign Jews as gifts to October 30, 1941.
-
-Meanwhile, in view of the dangers of emigration in time of war and in view of the possibilities in the east, the Reichsfüh rer mathcal SS and Chief of the German Police [Himmler] has forbidden the emigration of Jews.
-
-III. In lieu of emigration, the evacuation of the Jews to the east has emerged, after an appropriate prior authorization by Führer [Hitler], as a further solution.
-
-While these actions are to be regarded solely as temporary measures, practical experiences are already being gathered here which will be of great importance during the coming final solution of the Jewish question.
-
-Around 11 million Jews are involved in this final solution of the Jewish question. They are distributed as follows among individual countries:
-
-B.
-
-Bulgaria
-
-48,000
-
-England
-
-Finland
-
-2,300
-
-Ireland
-
-4,000
-
-Italy, including Sardinia
-
-58,000
-
-Albania
-
-200
-
-Croatia
-
-40,000
-
-Portugal
-
-3,000
-
-Roumania, including Bessarabia
-
-342,000
-
-Sweden
-
-8,000
-
-Switzerland
-
-18,000
-
-Serbia
-
-10,000
-
-Slovakia
-
-88,000
-
-Spain
-
-6,000
-
-Turkey (European portion)
-
-55,500
-
-Hungary USSR
-
-742,800
-
-Ukraine
-
-2,994,684
-
-White Russia, excluding
-
-Bialystok
-
-446,484
-
-Total: over 11,000,000
-
-So far as the Jews of the various foreign countries are con-. cerned, the numbers listed include only Jews by religion, since definitions of Jews according to racial principles are in part
-
-still lacking there. Given prevailing attitudes and conceptions, the treatment of the problem in individual countries will encounter certain difficulties, especially in Hungary and Rou mánia. For example, even today a Jew in Roumania can buy for cash appropriate documents officially certifying him in a foreign nationality.
-
-The pervasive influence of Jewry in the USSR is known. The European area contains some 5 million, the Asian barely a half million Jews.
-
-The occupational distribution of Jewry in the European area of the USSR was approximately as follows:agriculture
-
-9.1%
-
-urban workers
-
-trade
-
-14.8% 20.0%
-
-23.4%
-
-32.7%
-
-state employees
-
-private professions medical, press, theater, and so forth
-
-In the course of the final solution, the Jews should be brought under appropriate direction in a suitable manner to the east for labor utilization. Separated by sex, the Jews capa ble of work will be led into these areas in large labor columns to build roads, whereby doubtless a large part will fall away through natural reduction.
-
-The inevitable final remainder which doubtless constitutes the toughest element will have to be dealt with appropriately, since it represents natural selection which upon liberation is to be regarded as a germ cell of a new Jewish development. (See the lesson of history.)
-
-In the course of the practical implementation of the final solution, Europe will be combed from west to east. If only because of the apartment shortage and other socio-political necessities, the Reich area-including the Protectorate of Bohemia and Moravia-will have to be placed ahead of the line.
-
-For the moment, the evacuated Jews will be brought bit by bit to so-called transit ghettos from where they will be transported further to the east.
-
-SS-Lieutenant General Heydrich pointed out further that an important prerequisite for the evacuation in general was the exact specification of the category of persons liable to be involved.
-
-It is intended not to evacuate Jews over 65, but to transfer them to an old people's ghetto (the plan calls for Theresien stadt).
-
-In addition to these age groups-some 30% of the 280,000 Jews who lived in the Old Reich and Austria on October 1,
-
-1941, are over 65-the old people's ghetto will receive badly invalided Jewish war veterans and Jews with war decorations (Iron Cross First Class). Many intercessions will be eliminated in one blow by means of this purposeful solution.
-
-The start of major individual evacuation operations will depend in large measure on military developments. With regard to the treatment of the final solution in European areas occupied or influenced by us, it was proposed that the appropriate specialists of the Foreign Office get together with the experts having jurisdiction in these matters within the Security Police and Security Service.
-
-In Slovakia and Croatia the situation is no longer all that difficult, since the essential key questions there have already been resolved. Meanwhile, the Romanian government has already appointed a plenipotentiary for Jewish affairs. To set tle the matter in Hungary, it will be necessary before long to impose upon the Hungarian government an adviser on Jewish
-
-questions.
-
-Regarding a start of preparations in Italy, SS-Lieutenant General Heydrich considers it appropriate to contact Police Chief [Himmler].
-
-In occupied and unoccupied France, the seizure of Jews for evacuation should in all probability proceed without major difficulty.
-
-Assistant Secretary Luther [Foreign Office] then pointed out that with a deeply penetrating treatment of these problems in some countries, such as the Nordic states, difficulties would emerge and that meanwhile it would therefore be best to hold these countries in abeyance. In view of the insignificant number of Jews involved there, the postponement would not amount to a substantial restriction. On the other hand, the Foreign Office sees no major difficulties in southeastern and western Europe.
-
-SS-Major General Hofmann intends to dispatch a specialist of the Race and Resettlement Office for general orientation to Hungary as soon as the Chief of Security Police and Security Service is about to tackle the situation over there. It was decided that temporarily the specialist of the Race and Resettlement Office-who is not to become active-should be officially attached as an assistant to the Police Attaché.
-
-IV. The Nuremberg laws should constitute the basis, so to speak, of the final solution project, while a solution of the mixed marriage and mixed parentage questions is a prerequisite for the complete purification of the problem.
-
-The Chief of the Security Police and Security Service ad dressed himself to a letter of the Chief of the Reich Chancellery, and speaking theoretically for the moment, dealt with the following points:
-
-1. Treatment of Mischlinge of the 1st degree
-
-In view of the final solution of the Jewish question Mischlinge of the first degree are placed into the same position as Jews.
-
-To be excepted from this treatment will be
-
-a) Mischlinge of the 1st degree married to Germans, if this marriage produced offspring (Mischlinge of the 2nd de
-
-gree). These Mischlinge of the 2nd degree are in the main placed into the same position as Germans.
-
-b) Mischlinge of the 1st degree who in some (vital) area have been accorded exceptional treatment by the higher authorities of the party or state. Each individual case has to be examined anew, whereby one must not exclude an unfavorable decision for the Mischling.
-
-Prerequisite for an exemption must always be basic merits of the Mischling himself (not merits of the German parent or marital partner).
-
-To avoid any progeny and to clean up the Mischling problem once and for all, the Mischlinge of the 1st degree who are to be exempted from evacuation must be sterilized. Sterilization is voluntary, but it is a prerequisite for remaining in the Reich. The sterilized "Mischling '' is then liberated from all the constricting ordinances to which he has heretofore been subjected.
-
-2. Treatment of Mischlinge of the 2nd degree In principle, the Mischlinge of the 2nd degree will be treated as Germans, with the exception of the following cases
-
-in which Mischlinge of the 2nd degree will be placed into the same position as Jews:
-
-a) The descent of the Mischling of the 2nd degree from a bastard marriage (both parts Mischlinge).
-
-b) Racially exceptionally poor appearance of the Misch ling of the 2nd degrée, so that for external reasons alone he has to be considered a Jew.
-
-c) A particularly unfavorable appraisal from a police and political viewpoint which indicates that the Mischling of the 2nd degree feels and behaves like a Jew.
-
-Even these considerations, however, should not apply if the Mischling of the 2nd degree is married to a German. 3. Marriages between full Jews and Germans
-
-In individual cases, it must be decided whether the Jewish partner is to be evacuated or whether, considering the effect of such a measure on the German relatives, he is to be transferred to an old people's ghetto.
-
-4. Marriages between Mischlinge of the 1st degree and Germans
-
-a) Without children:
-
-If there are no children, the Mischling of the 1st degree is to be evacuated, or transferred to an old people's ghetto (same treatment as in the case of marriages
-
-between full Jews and Germans, point 3).
-
-b) With children:
-
-If there are children (Mischlinge of the 2nd degree) and they are placed into the same position as Jews, they will be evacuated along with the [parent who is al Mischling of the 1st degree, or transferred to a ghetto. Insofar as these children are placed into the same position as Germans (the regular case) they are to be exempted from evacuation, and so will [the parent who is a] Mischling of the 1st degree.
-
-5. Marriages between Mischlinge of the 1st degree and Mischlinge of the 2nd degree or Jews
-
-In the case of these marriages, all the elements (including the children) are to be treated as Jews and hence evacuated, or transferred to an old people's ghetto. 6. Marriages between Mischlinge of the 1st degree and Mischlinge of the 2nd degree
-
-Both partners, without regard to children, are to be evacuated, or placed into an old people's ghetto, since racially the children, if any, regularly reveal a stronger Jewish blood component than do Mischlinge of the 2nd degree.
-
-SS-Major General Hofmann is of the view that one will have to make widespread use of sterilization, especially since the Mischlinge, faced with the choice of being evacuated or sterilized, would rather submit to sterilization.
-
-Undersecretary Dr. Stuckart [Interior Ministry} stated that in this form the practical implementation of the possibilities just mentioned for cleaning up the mixed marriage and mixed parentage problem would entail an endless administrative task. In order to be sure, however, of taking into account also the biological facts, Undersecretary Dr. Stuckart proposed to proceed with compulsory sterilization.
-
-To simplify the Mischling problem, one should further think about the possibility of enabling the lawmaker to say in so many words: "These marriages are dissolved."
-
-As for the effect of the evacuation of the Jews on economic life, Undersecretary Neumann [Four Year Plan] declared that at the moment Jews employed in important war work could not be evacuated until replacements became available.
-
-SS-Lieutenant General Heydrich pointed to the fact that in accordance with directives authorized by him for current evacuations, these Jews were not being evacuated anyhow.
-
-Undersecretary Dr. Bühler stated that the General Government [of Poland] would welcome the start of the final solution of this question in its territory, since the transport problem was no overriding factor there and the course of the action would not be hindered by considerations of work utilization. Jews should be removed from the domain of the General Government as fast as possible, because it is precisely here that the Jew constitutes a substantial danger as a carrier of epidemics and also because his continued black market activities create constant disorder in the economic structure of the country. Moreover, the majority of the
-
-2½ million Jews involved were not capable of work.
-
-Undersecretary Dr. Bühler stated further that the Chief of the Security Police and Security Service was in charge of the final solution of the Jewish question in the General Government and that his work was being supported by the offices of the General Government. He only had one favor to ask: that the Jewish question in this territory be solved as rapidly as possible.
-
-Finally there was a discussion of the various types of solution possibilities, with both Gauleiter Dr. Meyer and Under secretary Dr. Bühler expressing the view that they could carry out certain preparatory measures in their territories on their own, provided, however, that any disturbance of the [non Jewish] population had to be avoided.
-
-The conference was closed with a plea of the Chief of Security Police and Security Service for the cooperation of all the participants in the implementation of the solution tasks.
+Hannah Arendt
+ 
+Eichmann in Jerusalem: A Report on the Banality of Evil
+ 
+Hannah Arendt (1906-1975), born and raised in Germany, was one of those creative European intellectuals who managed to flee their native lands in time to escape the Nazi grip. In the 1920s Arendt attended the University of Heidelberg, where, majoring in philosophy, she studied with such existentialists as Martin Heidegger and Karl Jaspers and, at age twenty-two, earned a doctorate with a dissertation on St. Augustine.
+ 
+In 1933, with Hitler's rise to power, Arendt moved to Paris, where she worked for a relief organization that found homes in Palestine for orphaned Jewish children. Never ceasing to study and write, she immigrated to the United States in 1940 just before the fall of France; in 1950, she became a naturalized American citizen. Unable for several years to secure an academic position in her new country, Arendt worked as an editor and in various social agencies until the publication of her first major work, The Origins of Totalitarianism (1951); this book analyzes Nazi and Communist forms of totalitarianism in terms of their roots in nineteenth-century imperialism and anti-Semitism. Other important volumes followed. Among them were The Human Condition (1958) and Between Past and Future (1961), both dealing with the general breakdown of the civilizing traditions of Western society; On Revolution (1963), which compares and contrasts the American and French revolutions; and On Violence (1970), which argues that destructive acts appear in the modern bureaucratic state as people are denied creative power. At the time of her death Arendt had completed two volumes of a three-volume philosophical work called The Life of the Mind; it was published posthumously in 1978. After the publication of The Origins of Totalitarianism, Arendt was much in demand at American universities. She became the first woman to be appointed a full professor at Princeton University and also taught, for various periods, at California, Chicago, Columbia, Northwestern, and Cornell universities. Her last academic post was as University Professor of Political Philosophy at the New School for Social Research, in New York City.
+ 
+Arendt's Eichmann in Jerusalem: A Report on the Banality of Evil (1963), the source of the following selection, is a book based upon the au- \ thor's personal observation of the trial of Adolf Eichmann, the notorious. Nazi war criminal executed in 1962 for his role in Hitler's "final solution" for the Jewish people. Upon its publication, Eichmann in Jerusalem gen erated widespread critical antagonism, much of it focusing on two of the book's unusual theses: (1) Eichmann was not a demoniacal anti-Semitic monster but rather a normal "banal" mediocrity, content to function as a cog in a totalitarian system and (2) the victims-especially the leaders of the Jewish communities in Nazi-occupied Europe-willingly cooperated in the destruction of their own communities and themselves. In a sense, Arendt expands upon Bettelheim's view (expressed in the preceding selection) regarding the behavior-conditioning nature of totalitarian societies and their elimination of personal autonomy. But while Bettelheim's The Informed Heart deals mainly with concentration camp inmates, the following excerpt -based on the Eichmann trial record-analyzes the psyche of a "typical" administrator in the society outside the camps.
+ 
+Throughout the trial, Eichmann tried to clarify, mostly without success, this second point in his plea of "not guilty in the sense of the indictment." The indictment implied not only that he had acted on purpose, which he did not deny, but out of base motives and in full knowledge of the criminal nature of his deeds. As for the base motives, he was perfectly sure that he was not what he called an innerer Schweinehund, a dirty bastard in the depths of his heart; and as for his conscience, he remembered perfectly well that he would have had a bad conscience only if he had not done what he had been ordered to do-to ship millions of men, women, and children to their death with great zeal and the most meticulous care. This, admittedly, was hard to take. Half a dozen psychiatrists had certified him as "normal"-"More normal, at any rate, than I am after having examined him," one of them was said to have exclaimed, while another had found that his whole psychological outlook, his attitude toward his wife and children, mother and father, brothers, sisters, and friends, was "not only normal but most desirable"-and finally the minister who had paid regular visits to him in prison after the Supreme Court had finished hearing his appeal reassured everybody by declaring Eichmann to be "a man with very positive ideas." Behind the comedy of the soul experts lay the hard fact that there was obviously no case of moral let alone legal insanity. ... Worse, his was obviously also no case of insane hatred of Jews, of fanatical anti-Semitism or in doctrination of any kind. He "personally" never had anything whatsoever against Jews; on the contrary, he had plenty of "private reasons" for not being a Jew hater.
+ 
+Alas, nobody believed him. The prosecutor did not believe him, because that was not his job. Counsel for the defense paid no attention because he, unlike Eichmann, was, to all appearances, not interested in questions of conscience. And the judges did not believe him, because they were too good, and perhaps also too conscious of the very foundations of their profession, to admit that an average, "normal" person, neither feeble-minded nor indoctrinated nor cynical, could be perfectly incapable of telling right from wrong. They preferred to conclude from occasional lies that he was a liar-and missed the greatest moral and even legal challenge of the whole case. Their case rested on the assumption that the defendant, like all "nor mal persons," must have been aware of the criminal nature of his acts, and Eichmann was indeed normal insofar as he was "no excep tion within the Nazi regime." However, under the conditions of the Third Reich only "exceptions" could be expected to react "normally." This simple truth of the matter created a dilemma for the judges which they could neither resolve nor escape.
+ 
+He was born on March 19, 1906, in Solingen, a German town in the Rhineland famous for its knives, scissors, and surgical instruments. Fifty-four years later, indulging in his favorite pastime of writing his memoirs, he described this memorable event as follows: "Today, fifteen years and a day after May 8, 1945, I begin to lead my thoughts back to that nineteenth of March of the year 1906, when at five
+ 
+o'clock in the morning I entered life on earth in the aspect of a human being." According to his religious beliefs, which had not changed since the Nazi period (in Jerusalem Eichmann declared himself to be a Gottgläubiger, the Nazi term for those who had bro ken with Christianity, and he refused to take his oath on the Bible), this event was to be ascribed to "a higher Bearer of Meaning," an entity somehow identical with the "movement of the universe," to which human life, in itself devoid of "higher meaning," is subject. (The terminology is quite suggestive. To call God a Höheren Sinnes träger meant linguistically to give him some place in the military hier archy, since the Nazis had changed the military "recipient of orders," the Befehlsempfänger, into a "bearer of orders," a Befehl sträger, indicating, as in the ancient "bearer of ill tidings," the burden of responsibility and of importance that weighed supposedly upon those who had to execute orders. Moreover, Eichmann, like everyone connected with the Final Solution, was officially a "bearer of secrets, a Geheimnisträger, as well, which as far as self-importance went certainly was not to sneeze at.) But Eichmann, not very much interested in metaphysics, remained singularly silent on any more intimate relationship between the Bearer of Meaning and the bearer of orders, and proceeded to a consideration of the other possible cause of his existence, his parents: "They would hardly have been so overjoyed at the arrival of their first-born had they been able to watch how in the hour of my birth the Norn of misfortune, to spite the Norn of good fortune, was already spinning threads of grief and sorrow into my life. But a kind, impenetrable veil kept my parents from seeing into the future."
+ 
+The misfortune started soon enough; it started in school. Eich mann's father, first an accountant for the Tramways and Electricity Company in Solingen and after 1913 an official of the same corporation in Austria, in Linz, had five children, four sons and a daughter, of whom only Adolf, the eldest, it seems, was unable to finish high school, or even to graduate from the vocational school for engineering into which he was then put. Throughout his life, Eichmann deceived people about his early "misfortunes' ' by hiding behind the more honorable financial misfortunes of his father. In Israel, how ever, during his first sessions with Captain Avner Less, the police examiner who was to spend approximately 35 days with him and who produced 3,564 typewritten pages from 76 recorder tapes, he was in an ebullient mood, full of enthusiasm about this unique opportunity "to pour forth everything. I know" and, by the same token, to advance to the rank of the most cooperative defendant ever. (His enthusiasm was soon dampened, though never quite extinguished, when he was confronted with concrete questions based on irrefutable documents.) The best proof of his initial boundless confidence, ob viously wasted on Captain Less (who said to Harry Mulisch: "I was Mr. Eichmann's father confessor"), was that for the first time in his life he admitted his early disasters, although he must have been aware of the fact that he thus contradicted himself on several impor tant entries in all his official Nazi records.
+ 
+Well, the disasters were ordinary: since he "had not exactly been the most hard-working" pupil-or, one may add, the most gifted his father had taken him first from high school and then from vocational school, long before graduation. Hence, the profession that appears on all his official documents: construction engineer, had about as much connection with reality as the statement that his birthplace was Palestine and that he was fluent in Hebrew and Yiddish-an other outright lie Eichmann had loved to tell both to his S.S. comrades and to his Jewish victims. It was in the same vein that he had always pretended he had been dismissed from his job as salesman for the Vacuum Oil Company in Austria because of membership in the National Socialist Party. The version he confided to Captain Less was less dramatic, though probably not the truth either: he had been fired because it was a time of unemployment, when unmarried employees were the first to lose their jobs. (This explanation, which at first seems plausible, is not very satisfactory, because he lost his job in the spring of 1933, when he had been engaged for two full years to Veronika, or Vera, Liebl, who later became his wife. Why had he not married her before, when he still had a good job? He finally married in March, 1935, probably because bachelors in the S.S., as in the Vacuum Oil Company, were never sure of their jobs and could not be promoted.) Clearly, bragging had always been one of his cardinal vices.
+ 
+While young Eichmann was doing poorly in school, his father left the Tramway and Electricity Company and went into business for himself. He bought a small mining enterprise and put his unpromising youngster to work in it as an ordinary mining laborer, but only until he found him a job in the sales department of the Oberösterreichischen Elektrobau Company, where Eichmann remained for over two years. He was now about twenty-two years old and without any prospects for a career; the only thing he had learned, perhaps, was how to sell. What then happened was what he himself called his first break, of which, again, we have two rather different versions. In a handwritten biographical record he submitted in 1939 to win a promotion in the S.S., he described it as follows: "I worked during the years of 1925 to 1927 as a salesman for the Austrian Elektrobau Company. I left this position of my own free will, as the Vacuum Oil Company of Vienna offered me representation for Upper Austria." The key word here is "offered," since, according to the story he told Captain Less in Israel, nobody had offered him any thing. His own mother had died when he was ten years old, and his father had married again. A cousin of his stepmother-a man he called "uncle"-who was president of the Austrian Automobile Club and was married to the daughter of a Jewish businessman in Czechoslovakia, had used his connection with the general director of the Austrian Vacuum Oil Company, a Jewish Mr. Weiss, to obtain, for his unfortunate relation, a job as traveling salesman. Eichmann was properly grateful; the Jews in his family were among his "private reasons" for not hating Jews. Even in 1943 or 1944, when the Final Solution was in full swing, he had not forgotten: "The daughter of this marriage, half-Jewish according to the Nuremberg Laws, came to see me in order to obtain my permission for her emigration into Switzerland. Of course, I granted this request, and the same uncle came also to see me to ask me to intervene for some Viennese Jewish couple. I mention this only to show that I myself had no hatred for Jews, for my whole education through my mother and my father had been strictly Christian; my mother, because of her Jewish relatives, held different opinions from those currently in S.S. circles."
+ 
+He went to considerable lengths to prove his point: he had never harbored any ill feelings against his victims, and, what is more, he had never made a secret of that fact. "I explained this to Dr. Löwen herz [head of the Jewish Community in Vienna] as I explained it to Dr. Kastner [vice-president of the Zionist Organization in Buda pest]; I think I told it to everybody, each of my men knew it, they all heard it from me sometime. Even in elementary school, I had a classmate with whom I spent my free time, and he came to our house; a family in Linz by the name of Sebba. The last time we met we walked together through the streets of Linz, already with the Party emblem of the N.S.D.A.P. [the Nazi Party] in my buttonhole, andhe did not think anything of it." Had Eichmann been a bit less prim or the police examination (which refrained from cross-examination, presumably to remain assured of his cooperation) less discrete, his "lack of prejudice" might have shown itself in still another aspect. It seems that in Vienna, where he was so extraordinarily successful in arranging the "forced emigration" of Jews, he had a Jewish mistress, an "old flame" from Linz. Rassenschande, sexual intercourse with Jews, was probably the greatest crime a member of the S.S. could commit, and though during the war the raping of Jewish girls be came a favorite pastime at the front, it was by no means common for a Higher S.S. officer to have an affair with a Jewish woman. Thus, Eichmann's repeated violent denunciations of Julius Streicher, the in sane and obscene editor of Der Stürmer, and of his pornographic anti Semitism, were perhaps personally motivated, and the expression of more than the routine contempt an "enlightened" S.S. man was sup
+ 
+posed to show toward the vulgar passions of lesser Party luminaries. The five and a half years with the Vacuum Oil Company must have been among the happier ones in Eichmann's life. He made a good living during a time of severe unemployment, and he was still living with his parents, except when he was out on the road. The date when this idyll came to an end--Pentecost, 1933-was among the few he always remembered. Actually, things had taken a turn for the worse somewhat earlier. At the end of 1932, he was unexpectedly transferred from Linz to Salzburg, very much against his inclinations: "I lost all joy in my work, I no longer liked to sell, to make calls." From such sudden losses of Arbeitsfreude Eichmann was to suffer throughout his life. The worst of them occurred when he was told of the Führer's order for the "physical extermination of the Jews," in which he was to play such an important role. This, too, came unexpectedly; he himself had "never thought of it . such a solution through violence," and he described his reaction in the same words: "I now lost everything, all joy in my work, all initiative, all interest; I was, so to speak, blown out." A similar blowing out must have happened in 1932 in Salzburg, and from his own account it is clear that he cannot have been very surprised when he was fired, though one need not believe his saying that he had been "very happy" about his dismissal.
+ 
+For whatever reasons, the year 1932 marked a turning point of his life. It was in April of this year that he joined the National Socialist Party and entered the S.S., upon an invitation of Ernst Kaltenbrunner, a young lawyer in Linz who later became chief of the Head Of fice for Reich Security (the Reichssicherheitshauptamt or R.S.H.A., as I shall call it henceforth), in one of whose six main departments Bureau IV, under the command of Heinrich Müller-Eichmann was eventually employed as head of section B-4. In court, Eichmann gave the impression of a typical member of the lower middle classes, and this impression was more than borne out by every sentence he spoke or wrote while in prison. But this was misleading; he was rather the déclassé son of a solid middle-class family, and it was indicative of his comedown in social status that while his father was a good friend of Kaltenbrunner's father, who was also a Linz lawyer, the relationship of the two sons was rather cool: Eichmann was unmistakably treated by Kaltenbrunner as his social inferior. Before Eichmann entered the Party and the S.S., he had proved that he was a joiner, and May 8, 1945, the official date of Germany's defeat, was significant for him mainly because it then dawned upon him that thenceforward he would have to live without being a member of something or other. "I sensed I would have to live a leaderless and difficult individual life, I would receive no directives from anybody, no orders and commands would any longer be issued to me, no pertinent ordinances would be there to consult-in brief, a life never, known before lay before me." When he was a child, his parents, un interested in politics, had enrolled him in the Young Men's Christian, Association, from which he later went into the German youth movement, the Wandervogel. During his four unsuccessful years in high school, he had joined the Jungfrontkämpfeverband, the youth section of the German-Austrian organization of war veterans, which, though violently pro-German and anti-republican, was tolerated by the Austrian government. When Kaltenbrunner suggested that he enter the S.SHe was just on the point of becoming a member of an altogether different outfit, the Freemasons' Lodge Schlaraffia, "an association of businessmen, physicians, actors, civil servants, etc., who came together to cultivate merriment and gaiety.... Each member had to give a lecture from time to time whose tenure was to be humor, refined humor." Kaltenbrunner explained to Eichmann that he would have to give up this merry society because as a Nazi he could not be a Freemason-a word that at the time was unknown to him. The choice between the S.S. and Schlaraffia (the name derives from Schlaraffenland, the gluttons' Cloud-Cuckoo Land of German fairy tales) might have been hard to make, but he was "kicked out"of Schlaraffia anyhow; he had committed a sin that even now, as he told the story in the Israeli prison, made him blush with shame: "Contrary to my upbringing, I had tried, though I was the youngest, to invite my companions to a glass of wine."
+ 
+A leaf in the whirlwind of time, he was blown from Schlaraffia, the Never-Never Land of tables set by magic and roast chickens that flew into your mouth-or, more accurately, from the company of respectable philistines with degrees and assured careers and "refined humor," whose worst vice was probably an irrepressible desire for practical jokes-into the marching columns of the Thousand-Year Reich, which lasted exactly twelve years and three months. At any rate, he did not enter the Party out of conviction, nor was he ever convinced by it-whenever he was asked to give his reasons, he repeated the same embarrassed clichés about the Treaty of Versailles and unemployment; rather, as he pointed out in court, "it was like being swallowed up by the Party against all expectations and without previous decision. It happened so quickly and suddenly." He had no time and less desire to be properly informed, he did not even know the Party program, he never read Mein Kampf. Kaltenbrunner had said to him: Why not join the S.S.? And he replied, Why not? That was how it had happened, and that was about all there was to it.
+ 
+Of course, that was not all there was to it. What Eichmann failed
+ 
+to tell the presiding judge in cross-examination was that he had been an ambitious young man who was fed up with his job as traveling salesman even before the Vacuum Oil Company was fed up with him. From a humdrum life without significance and consequence the wind had blown him into History, as he understood it, namely, into a Movement that always kept moving and in which somebody like him-already a failure in the eyes of his social class, of his family, and hence in his own eyes as well-could start from scratch and still make a career. And if he did not always like what he had to do (for example, dispatching people to their death by the trainload instead of forcing them to emigrate), if he guessed, rather early, that the whole business would come to a bad end, with Germany losing the war, if all his most cherished plans came to nothing (the evacuation of European Jewry to Madagascar, the establishment of a Jewish territory in the Nisko region of Poland, the experiment with carefully built defense installations around his Berlin office to repel Russian tanks), and if, to his greatest "grief and sorrow," he never advanced beyond the grade of S.S. Obersturmbannführer (a rank equivalent to lieutenant colonel)-in short, if, with the exception of the year in Vienna, his life was beset with frustrations, he never forgot what the alternative would have been. Not only in Argentina, leading the unhappy existence of a refugee, but also in the courtroom in Jerusalem, with his life as good as forfeited, he might still have preferred-if anybody had asked him to be hanged as Obersturmbannführer a.D. [Lieutenant Colonel in retirement rather than living out his life quietly and normally as a traveling salesman for the Vacuum Oil Company.
+ 
+In January 1942 Reinhardt Heydrich, Chief of Security and Intelligence to the Gestapo (secret police), called a conference of Undersecretaries of the German government ministries and the Civil Service. The purpose of the meeting was to coordinate all efforts toward the implementation of the Final Solution, the Nazi plan for the total destruction of the Jewish people. Ed.]
+ 
+It was a very important occasion for Eichmann, who had never before mingled socially with so many "high personages' '; he was by far the lowest in rank and social position of those present. He had sent out the invitations and had prepared some statistical material (full of incredible errors) for Heydrich's introductory speech-eleven million Jews had to be killed, an undertaking of some magnitude and later he was to prepare the minutes. In short, he acted as secretary of the meeting. This was why he was permitted, after the dignitaries had left, to sit down near the fireplace with his chief Müller and Heydrich, "and that was the first time I saw Heydrich smoke and drink." They did not talk shop, but enjoyed some rest after long hours of work," being greatly satisfied and, especially Hey drich, in very high spirits.
+ 
+There was another reason that made the day of this conference unforgettable for Eichmann. Although he had been doing his best right along to help with the Final Solution, he had still harbored some doubts about "such a bloody solution through violence," and these doubts had now been dispelled. "Here now, during this conference, the most prominent people had spoken, the Popes of the Third Reich." Now he could see with his own eyes and hear with his own ears that not only Hitler, not only Heydrich or the "sphinx" Müller, not just the S.S. or the Party, but the élite of the good old Civil Service were vying and fighting with each other for the honor of taking the lead in these "bloody" matters. "At that moment, I sensed a kind of Pontius Pilate feeling, for I felt free of all guilt." Who was he to judge? Who was he "to have [his] own thoughts in this matter"? Well, he was neither the first nor the last to be ruined by modesty.
+ 
+Eichmann, in contrast to other elements in the Nazi movement, had always been overawed by "good society," and the politeness he often showed to German-speaking Jewish functionaries was to a large extent the result of his recognition that he was dealing with people who were socially his superiors. He was not at all, as one witness called him, a "Landsknechtnatur," a mercenary, who wanted to escape to regions where there aren't no Ten Commandments an' a man can raise a thirst. What he fervently believed in up to the end was success, the chief standard of "good society" as he knew it. Typical was his last word on the subject of Hitler-whom he and his comrade Sassen¹ had agreed to "shirr out" of their story; Hitler, he said, "may have been wrong all down the line, but one thing is beyond dispute: the man was able to work his way up from lance corporal in the German Army to Führer of a people of almost eighty million... . His success alone proved to me that I should subordinate myself to this man." His conscience was indeed set at rest when he saw the zeal and eagerness with which "good society" everywhere reacted as he did. He did not need to "close his ears to the voice of conscience," as the judgment has it, not because he had none, but because his conscience spoke with a "respectable voice," with the voice of respectable society around him.
+ 
+So Eichmann's opportunities for feeling like Póntius Pilate were many, and as the months and the years went by, he lost the need to feel anything at all. This was the way things were, this was the new law of the land, based on the Führer's order; whatever he did he did, as far as he could see, a law-ab citizen. He did his duty, as he told the police and the court over and over again; he not only obeyed
+ 
+¹ Wilem Sassen, a journalist and former member of the S.S.-who, like Adolf Eich mann, was a fugitive from justice-interviewed Eichmann in 1955 in Argentina. After Eichmann was caught there in 1960 by Israeli agents, parts of the interview were published in American and German magazines. orders, he also obeyed the law. Eichmann had a muddled inkling that this could be an important distinction, but neither the defense nor the judges ever took him up on it. The well-worn coins of "superior orders" versus "acts of state" were handed back and forth; they had governed the whole discussion of these matters during the Nuremberg Trials," for no other reason than that they gave the illusion that the altogether unprecedented could be judged according to precedents and the standards that went with them. Eichmann, with his rather modest mental gifts, was certainly the last man in the courtroom to be expected to challenge these notions and to strike out on his own. Since, in addition to performing what he conceived to be the duties of a law-abiding citizen, he had also acted upon orders always so careful to be "covered"-he became completely muddled, and ended by stressing alternately the virtues and the vices of blind obedience, or the "obedience of corpses," Kadavergehorsam, as he himself called it.
+ 
+The first indication of Eichmann's vague notion that there was more involved in this whole business than the question of the soldiers carrying out orders that are clearly criminal in nature and in tent appeared during the police examination, when he suddenly declared with great emphasis that he had lived his whole life according to Kant's moral precepts, and especially according to a Kantian definition of duty. This was outrageous, on the face of it, and also incomprehensible, since Kant's moral philosophy is so closely bound up with man's faculty of judgment, which rules out blind obedience. The examining officer did not press the point, but Judge Raveh, either out of curiosity or out of indignation at Eichmann's having dared to invoke Kant's name in connection with his crimes, decided. to question the accused. And, to the surprise of everybody, Eich mann came up with an approximately correct definition of the cate gorical imperative: "I meant by my remark about Kant that the principle of my will must always be such that it can become the prin ciple of general laws" (which is not the case with theft or murder, for instance, because the thief or the murderer cannot conceivably wish to live under a legal system that would give others the right to' rob or murder him). Upon further questioning, he added that he had read Kant's Critique of Practical Reason. He then proceeded to explain that from the moment he was charged with carrying out the Final Solution he had ceased to live according to Kantian principles, that he had known it, and that he had consoled himself with the thought that he no longer "was master of his own deeds," that he was unable "to change anything." What he failed to point out in court was that in this "period of crimes legalized by the state," as he himself now called it, he had not simply dismissed the Kantian formula as no longer applicable, he had distorted it to read: Act as if the principle of your actions were the same as that of the legislator or of the law of the land or, in Hans Frank's formulation of "the categorical imperative in the Third Reich," which Eichmann might have known: "Act in such a way that the Führer, if he knew your action, would approve it" (Die Technik des Staates, 1942, pp. 15-16). Kant, to be sure, had never intended to say anything of the sort; on the contrary, to him every man was a legislator the moment he started to act: by using his "practical reason" man found the principles that could and should be the principles of law. But it is true that Eichmann's unconscious distortion agrees with what he himself called the version of Kant ``for the household use of the little man." In this household use, all that is left of Kant's spirit is the demand that a man do more than obey the law, that he go beyond the mere call of obedience and identify his own will with the principle behind the law-the source from which the law sprang. In Kant's philosophy, that source was practical reason; in Eichmann's household use of him, it was the will of the Führer. Much of the horribly painstaking thoroughness in the execution of the Final Solution-a thoroughness that usually strikes the observer as typically German, or else as characteristic of the perfect bureaucrat-can be traced to the odd notion, indeed very common in Germany, that to be law-abiding means not merely to obey the laws but to act as though one were the legislator of the laws that one obeys. Hence the conviction that nothing less than going beyond the call of duty will do.
+ 
+Whatever Kant's role in the formation of the little man's' 'mentality in Germany may have been, there is not the slightest doubt that in one respect Eichmann did indeed follow Kant's precepts: a law was a law, there could be no exceptions. In Jerusalem, he admitted only two such exceptions during the time when "eighty million Germans' ' had each had "his decent Jew": he had helped a half Jewish cousin, and a Jewish couple in Vienna for whom his uncle had intervened. This inconsistency still made him feel somewhat uncomfortable, and when he was questioned about it during cross-examina tion, he became openly apologetic: he had "confessed his sins' ' to his superiors. This uncompromising attitude toward the performance of his murderous duties damned him in the eyes of the judges more than anything else, which was comprehensible, but in his own eyes it was precisely what justified him, as it had once silenced whatever conscience he might have had left. No exceptions-this was the proof that he had always acted against his "inclinations," whether they were sentimental or inspired by interest, that he had always done his "duty."
+ 
+in Jerusalem, confronted with documentary proof of his extraordinary loyalty to Hitler and the Führer's order, Eichmann tried a number of times to explain that during the Third Reich "the Führer's words had the force of law" (Führer Worte haben Gesetzeskraft), which meant, among other things, that if the order came directly from Hitler it did not have to be in writing. He tried to explain that this was why he had never asked for a written order from Hitler (no such document relating to the Final Solution has ever been found; probably it never existed), but had demanded to see a written order from Himmler.4 To be sure, this was a fantastic state of affairs, and whole libraries of very "learned'' juridical comment have been written, all demonstrating that the Führer's words, his oral pronouncements, were the basic law of the land. Within this "legal" framework, every order contrary in letter or spirit to a word spoken by Hitler was, by definition, unlawful. Eichmann's position, therefore, showed a most unpleasant resemblance to that of the often cited soldier who, acting in a normal legal framework, refuses to carry out orders that run counter to his ordinary experience of lawfulness and hence can be recognized by him as criminal. The extensive literature on the subject usually supports its case with the common equivocal meaning of the word "law," which in this context means sometimes the law of the land-that is, posited, positive
+ 
+"Heinrich Himmler was the director of all the German police forces during the Nazi regime, he was captured in 1945 but committed suicide before he could be brought
+ 
+to trial.law and sometimes the law that supposedly speaks in all men's hearts with an identical voice. Practically speaking, however, orders to be disobeyed must be "manifestly unlawful" and unlawfulness must fly like a black flag above [them] as a warning reading: ''Prohibited!'"-as the judgment pointed out. And in a criminal regime this "black flag" with its "warning sign" flies as "manifestly" above what normally is a lawful order-for instance, not to kill innocent people just because they happen to be Jews-as it flies above a criminal order under normal circumstances. To fall back on an unequivocal voice of conscience-or, in the even vaguer language of the jurists, on a "general sentiment of humanity" (Oppenheim-Lauter pacht in International Law, 1952) not only begs the question, it signifies a deliberate refusal to take notice of the central moral, legal, and political phenomena of our century.
+ 
+To be sure, it was not merely Eichmann's conviction that Himmler was now giving "criminal" orders [to stop the murders and destroy the evidence as German defeat approached] that deter mined his actions. But the personal element undoubtedly involved was not fanaticism, it was his genuine, "boundless and immoderate admiration for Hitler" (as one of the defense witnesses called it) - for the man who had made it "from lance corporal to Chancellor of the Reich." It would be idle to try to figure out which was stronger in him, his admiration for Hitler or his determination to remain a law-abiding citizen of the Third Reich when Germany was already in ruins. Both motives came into play once more during the last days of the war, when he was in Berlin and saw with violent indignation how everybody around him was sensibly enough getting himself fixed up with forged papers before the arrival of the Russians or the Americans. A few weeks later, Eichmann, too, began to travel under an assumed name, but by then Hitler was dead, and the "law of the land" was no longer in existence, and he, as he pointed out, was no longer bound by his oath. For the oath taken by the members of the S.S. differed from the military oath sworn by the soldiers in that it bound them only to Hitler, not to Germany.
+ 
+The case of the conscience of Adolf Eichmann, which is admit tedly complicated but is by no means unique, is scarcely comparable to the case of the German generals, one of whom, when asked at Nuremberg, "How was it possible that all you honorable generals could continue to serve a murderer with such unquestioning loyalty?," replied that it was "not the task of a soldier to act as judge over his supreme commander. Let history do that or God in heaven." (Thus General Alfred Jodl, hanged at Nuremberg.) Eich mann, much less intelligent and without any education to speak of, at least dimly realized that it was not an order but a law which had turned them all into criminals. The distinction between an order and Führer's word was that the latter's validity was not limited in time and space, which is the outstanding characteristic of the former. This is also the true reason why the Führer's order for the Final Solution was followed by a huge shower of regulations and directives, all drafted by expert lawyers and legal advisers, not by mere administrators; this order, in contrast to ordinary orders, was treated as a law. Needless to add, the resulting legal paraphernalia, far from being a mere symptom of German pedantry or thoroughness, served most effectively to give the whole business its outward appearance of legality.
+ 
+And just as the law in civilized countries assumes that the voice of conscience tells everybody "Thou shalt not kill," even though man's natural desires and inclinations may at times be murderous, so the law of Hitler's land demanded that the voice of conscience tell every body: "Thou shalt kill," although the organizers of the massacres knew full well that murder is against the normal desires and inclina tions of most people. Evil in the Third Reich had lost the quality by which most people recognize it-the quality of temptation. Many Germans and many Nazis, probably an overwhelming majority of, them, must have been tempted not to murder, not to rob, not to let, their neighbors go off to their doom (for that the Jews were trans ported to their doom they knew, of course, even though many of them may not have known the gruesome details), and not to become accomplices in all these crimes by benefiting from them. But, God knows, they had learned how to resist temptation.
+ 
+The trouble with Eichmann was precisely that so many were like him, and that the many were neither perverted nor sadistic, that they were, and still are, terribly and terrifyingly normal. From the.. viewpoint of our legal institutions and of our moral standards of judgment, this normality was much more terrifying than all the atrocities put together, for it implied-as had been said at Nuremberg over and over again by the defendants and their counsels--that this new type of criminal, who is in actual fact hostis generis humani, 5 commits his crimes under circumstances that make it well-nigh impossible for him to know or to feel that he is doing wrong.
+ 
