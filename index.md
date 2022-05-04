@@ -1,258 +1,580 @@
-Decolonization,
-Revolution, and the Cold
-War 1945–1968
-China Charts a New Revolutionary Path
-A member of the Red Guards, part of the mass
-A mobilization known as the Proletarian Cultural Revolution, which was directed by Chinese leader Mao Zedong between 1966 and 1976. fter the Second World War, the world faced deep and swift currents of change that swept from the decolonization of Asia and Africa to social revolutions such as those in China and Cuba. These transformations were the outcome of movements that began well before the Second World War and were accelerated by the war’s upheaval. The transformations took place in the international context of the Cold War, a rivalry between the United States and the Soviet Union. As people in Asia and Africa pushed back against centuries of Western expansion and demanded national self-determination and racial equality, new nations emerged and nearly every colonial territory gained formal independence between 1945 and the early 1960s. A revolution in China consolidated Communist rule and initially followed the Soviet model, but then veered in new directions. Rather than form an allied Communist front, China and the Soviet Union became economic and political rivals. The Cold War that emerged between the U.S. and U.S.S.R. following the world war did not involve armed conflict between the two nations. But it became a global experience in which each country backed rival factions in conflicts around the world. The Cold War also imposed a division between western European countries allied to the United States, and eastern European nations that the Soviet Union brought into its zone of influence. CHAPTER PREVIEW THE WORLD REMADE How did the Cold War and decolonization shape the postwar world? NATIONALISM IN SOUTH ASIA AND THE MIDDLE EAST How did religion and the legacies of colonialism affect the formation of new nations in South Asia and the Middle East after World War II? REVOLUTION AND RESURGENCE IN EAST AND SOUTHEAST ASIA How did the Cold War shape reconstruction, revolution, and decolonization in East and Southeast Asia? DECOLONIZATION IN AFRICA What factors influenced decolonization in Africa after World War II? POPULIST AND REVOLUTIONARY PATHWAYS IN LATIN AMERICA Why did populism emerge as such a powerful political force in Latin America? THE LIMITS OF POSTWAR PROSPERITY Why did the world face growing social unrest in the 1960s? The World Remade How did the Cold War and decolonization shape the postwar world? The rivalry between the United States and the Soviet Union divided postwar Europe and became a long, tense standoff, the Cold War. As the Cold War took shape, three events separated by barely two years foreshadowed the changes that would take place in the world following the Second World War: the independence of India and Pakistan in 1947; the establishment of the state of Israel in 1948; and the Communist revolution in China in 1949. All had their roots in the decades preceding the Second World War — and even predating the First World War. Yet each was shaped by the war and its outcomes. Cold War The post–World War II conflict between the United States and the Soviet Union. The Cold War The Cold War originated in disputes over the political outcome of the war. Soviet leader Joseph Stalin insisted that his country needed control of eastern Europe to guarantee military security from Germany. While U.S. president Franklin Roosevelt had been inclined to accommodate these demands, his successor, Harry Truman, demanded free elections throughout eastern Europe. Stalin refused. The United States’ status as the only country that possessed atomic weapons at the end of the war bolstered Truman’s tough stance. Just as the U.S. sense of security came from having a monopoly on the atomic bomb, Stalin pursued security by militarily occupying eastern Europe and imposing compliant governments that would provide a buffer against the threat of western European aggression. These countries were considered Soviet satellites — nations whose politics and economics were modeled on and dictated by the Soviet Union. President Truman misread these occupations as a campaign for world domination. Communist movements in Greece and China, beyond Stalin’s occupation zone, fed these fears. In October 1945 Truman issued the Truman Doctrine, aimed at “containing” communism to areas already occupied by the Soviet army by providing military and economic support to governments threatened by Communist control. (His reference to regimes imposed by force applied only to Europe and countries threatened by communism, not to European colonial domination of Asia and Africa.) Truman Doctrine The 1945 American policy of preventing the spread of Communist rule. Truman asked Congress for military aid for Greece and Turkey to prevent the spread of communism. Soon after, Secretary of State George C. Marshall proposed a broader package of economic and food aid — the Marshall Plan — to help Europe rebuild. Stalin refused Marshall Plan assistance for eastern Europe. The Soviet Union’s support for the overthrow of the democratically elected Czechoslovakian government in 1948 and its replacement by a Communist government shocked the U.S. Congress into approving the Marshall Plan in April 1948. Marshall Plan A 1948 American plan for providing economic aid to Europe to help it rebuild after World War II. A lasting pattern of escalating reactions to real and perceived provocations was established between the U.S. and Soviet Union. Stalin retaliated by blocking road traffic through the Soviet zone of Germany to Berlin, prompting the U.S. and its allies to airlift millions of tons of provisions to the West Berliners. After 324 days the Soviets backed down: containment seemed to work. In 1949 the United States formed an antiSoviet military alliance of Western governments: the North Atlantic Treaty Organization (NATO). Stalin countered by tightening his hold on his satellites, united in 1955 under the Warsaw Pact. Europe was divided into two hostile blocs. British prime minister Winston Churchill warned that an “iron curtain has descended across the Continent.” NATO The North Atlantic Treaty Organization, an anti-Soviet military alliance of Western nations, formed in 1949. Berlin Airlift Residents of Berlin watch a U.S. Air Force cargo plane land with supplies to support West Berliners during the Soviet blockade (1948–1949). The Soviet Union, with its massive army arrayed across eastern Europe, and the United States, with its industrial strength and atomic weapons, emerged as superpowers whose might dwarfed that of other countries. Superpower status reached an awkward balance after the Soviet Union developed its own atomic weapons in 1949. Both nations pitched themselves into a military and geopolitical confrontation that stopped short of outright war: the Cold War (Map 31.1). MAP 31.1 Cold War Europe in the 1950s Europe was divided by an “iron curtain” during the Cold War. None of the Communist countries of eastern Europe were participants in the Marshall Plan. An ideological divide defined the rivalry between the United States and the Soviet Union. The United States saw itself as the defender of a “free world” governed by liberal principles such as free markets, private property, and individual rights protected by democratic constitutions. The Soviet Union defined itself as the defender of the rights of workers and peasants against their exploiters, the rights of colonial peoples against their colonizers, and economic development based on planning and equitable distribution. The Cold War sharpened the distinctions between these models, creating opposing paths that the superpowers pressured other countries to follow.
+TOP SECRET
+
+United States Objectives and Programs for National Security
+
+NSC 68
+
+(Source: Foreign Relations of the United States: 1950, 1, 237-2921¹
+
+Analysis
+
+1. BACKGROUNDS OF THE PRESENT WORLD CRISIS
+
+Within the past thirty-five years the world has experienced two global wars of tremendous violence. It has witnessed two revolutions-the Russian and the Chinese-or extreme scope and intensity. It has also seen the collapse of five empires-the Ottoman, the Austro-Hungarian, German, Italian and Japanese-and the drastic decline of two major imperial systems, the British and the French. During the span of one generation, the international distribution of power has been fundamentally altered. For several centuries it had proved impossible for any one nation to gain such preponderant strength that a coalition of other nations could not in time face it with greater strength. The international scene was marked by recurring periods of violence and war, but a system of sovereign and independent states was maintained, over which no state was able to achieve hegemony.
+
+Two complex sets of factors have now basically altered this historical distribution of power. First, the defeat of Germany and Japan and the decline of the British and French Empires have interacted with the development of the United States and the Soviet Union in such a way that power has increasingly gravitated to these two centers. Second, the Soviet Union, unlike previous aspirants to hegemony, is animated by a new fanatic faith, antithetical to our own, and seeks to impose its absolute authority over the rest of the world. Conflict has, therefore, become endemic and is waged, on the part of the Soviet Union, by violent or non-violent methods in accordance with the dictates of expediency. With the development of increasingly terrifying weapons of mass destruction, every individual faces the ever-present possibility of annihilation should the conflict enter the phase of total war.
+
+On the one hand, the people of the world yearn for relief from the anxiety arising from the risk of atomic war. On the other hand, any substantial further extension of the area under the domination of the Kremlin would raise the possibility that no coalition adequate to confront the Kremlin with greater strength could be assembled. It is in this context that this Republic and its citizens in the ascendancy of their strength stand in their deepest peril.
+
+The issues that face us are momentous, involving the fulfillment of destruction not only of this. Republic but of civilization itself. They are issues which will not await our deliberations. With conscience and resolution this Government and the people it represents must now take new and fateful decisions.
+
+II. FUNDAMENTAL PURPOSE OF THE UNITED STATES The fundamental purpose of the United States is laid down in the Preamble to the Constitution: "... to form a more perfect Union, establish Justice, insure domestic Tranquility, provide for the common defense, promote the general Welfare, and secure the Blessings of Liberty to ourselves and to our Posterity." In essence, the fundamental purpose is to assure integrity. and vitality of our free society, which is founded upon the dignity and worth of the individual.
+
+Three realities emerge as a consequence of this purpose: Our determination to maintain the essential elements of individual freedom, as set forth in the Constitution and Bill of Rights; our determination to create conditions under which our free and democratic system can live and prosper; and our determination to fight if necessary to defend our way of life, for which as in the Declaration of Independence, "with a firm reliance on the protection of Divine Providence, we mutually pledge to each other our lives, our Fortunes and our sacred Honor."
+
+III. FUNDAMENTAL DESIGN OF THE KREMLIN
+
+The fundamental design of those who control the Soviet Union and the international communist movement is to retain and solidify their absolute power, first in the Soviet Union and second in the areas now under their control, In the mind of the Soviet leaders, however, achievement of this design requires the dynamic extension of their authority and the ultimate elimination of any effective opposition to their authority.
+
+The design, therefore, calls for the complete subversion or forcible destruction of the machinery of government and structure of society in the countries of the non-Soviet world and their replacement by an apparatus and structure subservient to and controlled from the Kremlin. To that end Soviet efforts are now directed toward the domination of the Eurasian land mass. The United States, as the principal center of power in the non-Soviet world and the bulwark of opposition to Soviet expansion, is the principal enemy whose integrity and vitality must be subverted or destroyed by one means or another if the Kremlin is to achieve its fundamental design.
+
+IV. THE UNDERLYING CONFLICT IN THE REALM OF IDEAS AND VALUES BETWEEN THE U.S. PURPOSE AND THE KREMLIN DESIGN
+
+A. Nature of conflict
+
+The Kremlin regards the United States as the only major threat to the achievement of its fundamental design. There is a basic conflict between the idea of freedom under a government of laws, and the idea of slavery under the grim oligarchy of the Kremlin, which has come to a crisis with the polar ization of power described in Section 1, and the exclusive possession of atomic weapons by the two protagonists. The idea of freedom, moreover, is peculiarly and intolerably subversive of the idea of slavery. But the converse is not true. The implaccable purpose of the slave state to eliminate the challenge of freedom has placed the two great powers at opposite poles. It is this fact which gives the present polarization of power the quality of crisis. The free society values the individual as an end in himself, requiring of him only that measure of self discipline and self restraint which make the rights of each individual compatible with the rights of every other individual. The freedom of the individual has as its counterpart, therefore, the negative responsibility of the individual not to exercise his freedom in ways consistent with the freedom of other individuals and the positive responsibility to make constructive use of his freedom in the building of a just society.
+
+From this idea of freedom with responsibility derives the marvelous diversity, the deep tolerance, the lawfulness of the free society. This is the explanation of the strength of free men. It constitutes the integrity and the vitality of a free and democratic system. The free society attempts to create and maintain an environment in which every individual has the opportunity to realize his creative powers. It also explains why the free society tolerates those within it who would use their freedom to destroy it. By the same token, in relations between nations, the prime reliance of the free society is on the strength and appeal of its idea, and it feels no compulsion sooner or later to bring all societies into conformity with it.
+
+For the free society does not fear, it welcomes diversity. It derives its strength from its hospitality even to antipathetic ideas. It is a market for free trade in ideas, secure in its faith that free men will take the best wares, and grow to a fuller and better realization of their powers in exercising their choice.
+
+The idea of freedom is the most contagious idea in history, more contagious than the idea of submission to authority. For the breath of freedom cannot be tolerated in a ety which has come under the domination of an individual or group of individuals with a will to absolute power. Where the despot holds absolute power-the absolute power of the absolutely powerful will-all other wills must be subjugated in an act of willing submission, a degradation willed by the individual upon himself under the compulsion of a perverted faith. It is the first article of this faith that he finds and can only find the meaning of his existence in serving the ends of the system. The system becomes God, and submission to the will of God becomes submission to the will of the system. It is not enough to yield outwardly to the system even Gandhian non-violence is not acceptable for the spirit of resistance and the devotion to a higher authority might then remain, and the individual would not be wholly submissive.
+
+The same compulsion which demands total power over all men within the Soviet state without a single exception, demands total power over all Com munist Parties and all states under Soviet domination. Thus Stalin has said that the theory and tactics of Leninism as expounded by the Bolshevik party are mandatory for the proletarian parties of all countries. A true internationalist is defined as one who unhesitatingly upholds the position of the Soviet Union and in the satellite states true patriotism is love of the Soviet Union. By the same token the peace policy" of the Soviet Union, described at a Party Congress as "a more advantageous form of fighting capitalism," is a device to divide and immobilize the non-Communist world, and the peace the Soviet Union seeks is the peace of total conformity to So viel policy.
+
+The antipathy of slavery to freedom explains the iron curtain, the isola tion, the autarchy of the society whose end is absolute power. The existence and persistence of the idea of freedom is a permanent and continuous threat to the foundation of the slave society; and it therefore regards as intolerable
+
+the long continued existence of freedom in the world. What is new, what makes the continuing crisis, is the polarization of power which now ines capably confronts the slave society with the free.
+
+The assault on free institutions is world-wide now, and in the context of the present polarization of power a defeat of free institutions anywhere is a defeat everywhere. The shock we sustained in the destruction of Czechoslovakia was not in the measure of Czechoslovakia's material importance to us. In a material sense, her capabilities were already at Soviet disposal.- But when the integrity of Czechoslovak institutions was destroyed, it was in the intangible scale of values that we registered a loss more damaging than the material loss we had already suffered.
+
+Thus unwillingly our free society finds itself mortally challenged by the Soviet system. No other value system is so wholly irreconcilable with ours, so implacable in its purpose to destroy ours, so capable of turning to its own uses the most dangerous and divisive trends in our own society, no other so skillfully and powerfully evokes the elements of irrationality in human nature everywhere, and no other has the support of a great and growing center of military power.
+
+B. Objectives
+
+The objectives of a free society are determined by its fundamental values and by the necessity for maintaining the material environment in which they flourish. Logically and in fact, therefore, the Kremlin's challenge to the United States is directed not only to our values but to our physical capacity to protect their environment. It is a challenge which encompasses both peace and war and our objectives in peace and war must take account of it.
+
+1. Thus we must make ourselves strong, both in the way in which we affirm our values in the conduct of our national life, and in the development of our military and economic strength.
+
+2. We must lead in building a successfully functioning political and economic system in the free world. It is only by practical affirmation, abroad as well as at home, of our essential values, that we can preserve our own integrity, in which lies the real frustration of the Kremlin design.
+
+3. But beyond thus affirming our values our policy and actions must be such as to foster a fundamental change in the nature of the Soviet system, a change toward which the frustration of the design is the first and perhaps the most important step. Clearly it will not only be less costly but more effective if this change occurs to a maximum extent as a result of internal forces in Soviet society.In a shrinking world, which now faces the threat of atomic warfare, it is not an adequate objective merely to seek to check the Kremlin design, for the absence of order among nations is becoming less and less tolerable. This fact imposes on us, in our own interests, the responsibility of world leaders. ship. It demands that we make the attempt, and accept the risks inherent in it, to bring about order and justice by means consistent with the principles of freedom and democracy. We should limit our requirement of the Soviet Union to its participation with other nations on the basis of equality and respect for the rights of others. Subject to this requirement, we must with our allies and the former subject peoples seek to create a world society based on the principle of.consent. Its framework cannot be inflexible. It will consist of many national communities of great and varying abilities and resources. and hence of war potential. The seeds of conflicts will inevitably exist or will come into being. To acknowledge this is only to acknowledge the impossibility of a final solution. Nor to acknowledge' It can be fatally dangerous in a world in which there are no final solutions.
+
+All these objectives of a free society are equally valid and necessary in peace and wart But every consideration of devotion to our ves and to our national security demands that we seek to achieve them by the strategy of the cold war. It is only by developing the moral and material strength of the free world that the Soviet regime will become convinced of the falsity of its assumptions and that the pre-conditions for workable agreements can be created. By practically demonstrating the integrity and vitality of our system the free world widens the area of possible agreement and thus can hope gradually to bring about a Soviet acknowledgement of realities which in sum will eventually constitute a frustration of the Soviet design. Short of this, however, it might be possible to create a situation which will induce the Soviet Union to accommodate itself, with or without the conscious abandonment of its design, to coexistence on tolerable terms with the non-Soviet world. Such a development would be a triumph for the idea of freedom and democracy. It must be an immediate objective of United States policy.
+
+There is no reason, in the event of war, for us to alter our overall objectives. They do not include unconditional surrender, the subjugation of the Russian peoples or a Russia shorn of its economic potential. Such a course would irrevocably unite the Russian people behind the regime which en slaves them. Rather these objectives contemplate Soviet acceptance of the specific and limited conditions requisite to an international environment in which free institutions can flourish, and in which the Russian peoples will
+
+have a new chance to work out their own destiny. If we can make the Russian people our allies in this enterprise we will obviously have made our task easier and victory more certain.
+
+The objectives outlined in NSC 20/4 (November 23, 1948) and quoted in Chapter X, are fully consistent with the objectives stated in this paper and they remain valid. The growing intensity of the conflict which has been imposed upon us, however, requires the changes of emphasis and the additions that are apparent. Coupled with the probable fission bomb capability and possible thermonuclear bomb capability of the Soviet Union, the intensify ing struggle requires us to face the fact that we can expect no lasting abate ment of the crisis unless and until a change occurs in the nature of the Soviet system.
+
+C. Means
+
+The free society is limited in its choice of means to achieve its ends. Compulsion is the negation of freedom, except when it is used to enforce the rights common to all. The resort to force, internally or externally, is therefore a last resort for a free society. The act is permissible only when one individual or groups or individuals within een the basic lights of other individuals or when another 'sodicity seeks to impose its will upon it The free society cherishes and protects as fundamental the rights of the minority against the will of a majority, because these rights are the inalienable rights of each and every individual.
+
+The resort to force, to compulsion, to the imposition of its will is therefore a difficult and dangerous act for a free society, which is warranted only in the face of even greater dangers. The necessity of the act must be clear and compelling; the act must commend itself to the overwhelming majority as an inescapable exception to the basic idea of freedom; or the regenerative capacity of free men after the act has been performed will be endangered.
+
+The Kremlin is able to select whatever means are expedient in seeking to carry out its fundamental design. Thus it can make the best of several possible worlds, conducting the struggle on those levels where it considers it profitable and enjoying the benefits of a pseudo-prace.on those levels where it is not ready for a contest. At the ideological or psychological level. In the struggle for men's minds, the conflict is world-wide. At the political and economic level, within states and in the relations between states, the struggle for power is being intensified. And at the military level, the Kremlin has thus far been careful not to commit a technical breach of peace, although using its vast forces to intimidate its neighbors, and to support an aggressive foreign policy, and not hesitating through its agents to resort to arms in favorable circumstances. The attempt to carry out its fundamental design is being pressed, therefore, with all means which are believed expedient in the present situation, and the Kremlin has inextricably engaged us in the conflict between its design and our purpose.
+
+We have no such freedom of choice, and least of all in the use of force. Resorting to war is not only a last resort for a free society, but it is also an act which cannot definitively end the fundamental conflict in the realm of ideas. The idea of slavery can only be overcome by the timely and persistent dem onstration of the superiority of the idea of freedom. Military victory alone would only partially and perhaps only temporarily affect the fundamental conflict, for although the ability of the Kremlin to threaten our security might be for a time destroyed, the resurgence of totalitarian forces and the re-establishment of the Soviet system or its equivalent would not be long delayed unless great progress were made in the fundamental conflict.
+
+Practical and ideological considerations therefore both impel us to the conclusion that we have no choice but to demonstrate the superiority of the idea of freedom by its constructive application, and to attempt to change the world situation by means short of war in such a way as to frustrate the Kremlin design and hasten the decay of the Soviet system.
+
+For us the role of military power is to serve the national purpose by deterring an attack upon us while we seek by other means to create an environment in which our free society can flourish, and by fighting, if necessary, to defend the integrity and vitality of our free society and to defeat any aggres. sor. The Kremlin uses Soviet military power to back up and serve the Kremlin design. It does not hesitate to use military force aggressively if that course is expedient in the achievement of its design. The differences between our fundamental purpose and the Kremlin design, therefore, are reflected in our respective attitudes toward and use of military force.
+
+Our free society, confronted by a threat to its basic values, naturally will take such action, including the use of military force, as may be required to protect those values. The integrity of our system will not be jeopardized by any measures, covert or overt, violent or non-violent, which serve the purposes of frustrating the Kremlin design, nor does the necessity for conduct. ing ourselves so as to affirm our values in actions as well as words forbid such measures, provided only they are appropriately calculated to that end and are not so excessive or misdirected as to make us enemies of the people instead of the evil men who have enslaved them.
+
+But if war comes, what is the role of force? Unless we so use it that the
+
+Russian people can perceive that our effort is directed against the regime and its power for aggression, and not against their own interests, we will unite the regime and the people in the kind of last ditch fight in which no underlying problems are solved, new ones are created, and where our basic principles are obscured and compromised. If we do not in the application of force demonstrate the nature of our objectives we will, in fact, have compromised from the outset our fundamental purpose. In the words of the Federalist (No. 28) "The means to be employed must be proportioned to the extent of the mischief." The mischief may be a global war or it may be a Soviet campaign for limited objectives. In either case we should take no avoidable initiative which would cause it to become a war of annihilation, and if we have the forces to defeat a Soviet drive for limited objectives it may well be to our interest not to let it become a global war. Our aim in applying force must be to compel the acceptance of terms consistent with our objectives, and our capabilities for the application of force should, therefore, be within the limits of what we can sustain over the long pull. be congruent to the range of tasks which we may encounter.
+
+V. SOVIET INTENTIONS AND CAPABILITIES
+
+A. Political and psychological
+
+The Kremlin's design for world domination begins at home. The first concern of a despotic oligarchy is that the local base of its power and authority be secure. The massive fact of the iron curtain isolating the Soviet peoples.. from the outside world, the repeated political purges within the U.S.S.R.. and the institutionalized crimes of the MVD are evidence that the Kremlin does not feel secure at home and that "the entire coercive force of the so cialist state" is more than ever one of seeking to impose its absolute authority over "the economy, manner of life, and consciousness of people'' (Vyshinsky, "The Law of the Soviet State," pp. 7-4). Similar evidence in the satellite states of Eastern Europe leads to the conclusion that this same policy, in less advanced phases, is being applied to the Kremlin's colonial areas.
+
+Being a totalitarian dictatorship, the Kremlin's objectives in these policies is the total subjective submission of the peoples now under its control. The concentration camp is the prototype of the society which these policies are designed to achieve, a society in which the personality of the individual is so broken and perverted that he participates affirmatively in his own degrada
+
+tion. The Kremlin's policy toward areas not under its control is the elimination of resistance to its will and the extension of its influence, and control. It is driven to follow this policy because it cannot, for the reasons set forth in Chapter IV, tolerate the existence of free societies; to the Kremlin the most mild and inoffensive free society is an affront, a challenge and a subversive influence. Given the nature of the Kremlin, and the evidence at hand, it seems clear that the ends toward which this policy is directed are the same as those where its control has already been established.
+
+The means employed by the Kremlin in pursuit of this policy are limited only by considerations of expediency. Doctrine is not a limiting factor, rather it dictates the employment of violence, subversion and deceit, and rejects moral considerations. In any event, the Kremlin's conviction of its own infallibility has made its devotion to theory so subjective that past or present pronouncements as to doctrine offer no reliable guide to future actions. The only apparent restraints on resort to war are, therefore, calculations of practicality.
+
+With particular reference to the United States, the Kremlin's strategic and tactical policy is affected by its estimate that we are not only the greatest immediate obstacle which stands between it and world domination, we are also the only power which could release forces in the free and Soviet worlds which could destroy it. The Kremlin's policy toward us is consequently animated by a peculiarly virulent blend of hatred and fear. Its strategy has been one of attempting to undermine the complex of forces, in this country and in the rest of the free world, on which our power is based. In this it has both adhered to doctrine and followed the sound principle of seeking maximum results with minimum risks and commitments. The present application of this strategy is a new form of expression for traditional Russian caution. However, there is no justification in Soviet theory or practice for predicting that, should the Kremlin become convinced that it could cause our downfall by one conclusive blow, it would not seek that solution.
+
+In considering the capabilities of the Soviet world, it is of prime importance to remember that, in contrast to ours, they are being drawn upon close to the maximum possible extent. Also in contrast to us, the Soviet world can do more with less-it has a lower standard of living, its economy requires less to keep it functioning and its military machine operates effectively with less elaborate equipment and organization.
+
+The capabilities of the Soviet world are being exploited to the full because The Kremlin is inescapably militant. It is inescapably militant because it possesses and is possessed by a world-wide revolutionary movement, because it is the inheritor of Russian imperialism and because it is a totalitarian dictatorship. Persistent crisis, conflict and expansion are the essence of the Krem lin's militancy. This dynamism serves to intensify all Soviet capabilities.
+
+Two enormous organizations, the Communist Party and the secret police, are an outstanding source of strength to the Kremlin. In the Party, it has an apparatus designed to impose at home an ideological uniformity among its people and to act abroad as an instrument of propaganda, subversion and espionage. In its police apparatus, it has a domestic repressive instrument guaranteeing under present circumstances the continued security of the Kremlin. The demonstrated capabilities of these two basic organizations, operating openly or in disguise, in mass or through single agents, is unparalleled in history. The party, the police and the conspicuous might of the Soviet military machine together tend to create an overall impression of irresistible Soviet power among many peoples of the free world.
+
+The ideological pretensions of the Kremlin are another great source of strength. Its identification of the Soviet system with communism, its peace campaigns and its championing of colonial peoples may be viewed with apathy, if not cynicism, by the oppressed totalitarian of the Soviet world, but in the free world these ideas find favorable responses in vulnerable segments of society. They have found a particularly receptive audience in Asia, especially as the Asiatics have been impressed by what has been plausibly portrayed to them as the rapid advance of the U.S.S.R. from a backward society to a position of great world power. Thus, in its pretensions to being (a) the source of a new universal faith and (b) the model "scientific" society, the Kremlin cynically identifies itself with the genuine aspirations of large numbers of people, and places itself at the head of an international crusade with all of the benefits which derive there from.
+
+Finally, there is a category of capabilities, strictly speaking neither institutional nor ideological, which should be taken into consideration. The extraordinary flexibility of Soviet tactics is certainly a strength. It derives from the utterly amoral and opportunistic conduct of Soviet policy. Combining this quality with the elements of secrecy, the Kremlin possesses a formidable capacity to act with the widest tactical latitude, with stealth and with speed.
+
+The greatest vulnerability of the Kremlin lies in the basic nature of its relations with the Soviet people.
+
+That relationship is characterized by universal suspicion, fear and denunciation. It is a relationship in which the Kremlin relies, not only for its power but its very survival, on intricately devised mechanisms of coercion. The Soviet monolith is held together by the iron curtain around it and the iron bars within it, not by any force of natural cohesion. These artificial mechanisms of unity have never been intelligently challenged by a strong outside force. The full measure of their vulnerability is therefore not yet evident.
+
+The Kremlin's relations with its satellites and their peoples is likewise a vulnerability. Nationalism still remains the most potent emotional-political force. The well-known ills of colonialism are compounded, however, by the excessive demands of the Kremlin that its satellites accept not only the imperial authority of Moscow but that they believe in and proclaim the ideological primacy and infallibility of the Kremlin. These excessive requirements can be made good only through extreme coercion. The result is that if a satellite feels able to effect its independence from the Kremlin, as Tito was able to do, it is likely to break away.
+
+In short, Soviet ideas and practices run counter to the best and potentially the strongest instincts of men, and deny their most fundamental aspirations. Against an adversary which effectively affirmed the constructive and hopeful instincts of men and was capable of fulfilling their fundamental aspirations. the Soviet system might prove to be fatally weak.
+
+The problem of succession to Stalin is also a Kremlin vulnerability. In a system where supreme power is acquired and held through violence and intimidation, the transfer of that power may well produce a period of instability.
+
+In a very real sense, the Kremlin is a victim of its own dynamism. This dynamism can become a weakness if it is frustrated, if in its forward thrusts it encounters a superior force which halts the expansion and exerts a superior counterpressure. Yet the Kremlin cannot relax the condition of crisis and mobilization, for to do so would be to lose its dynamism, whereas the seeds of decay within the Soviet system would begin to flourish and fructify.
+
+The Kremlin is, of course, aware of these weaknesses. It must know that in the present world situation they are of secondary significance. So long as the Kremlin retains the initiative, so long as it can keep on the offensive unchallenged by clearly superior counterforce-spiritual as well as material-its vulnerabilities are largely inoperative and even concealed by its successes. The Kremlin has not yet been given real reason to fear and be diverted by the rot within its system.
+
+
+B. Economic
+
+The Kremlin has no economic intentions unrelated to its overall policies. Economics in the Soviet world is not an end in itself. The Kremlin's policy, insofar as it has to do with economics, is to utilize economic processes to contribute to the overall strength, particularly the war-making capacity of the Soviet system. The material welfare of the totalitarian is severely subordinated to the interests of the system.
+
+As for capabilities, even granting optimistic Soviet reports of production, the total economic strength of the U.S.S.R. compares with that of the U.S. as roughly one to four. This is reflected not only in gross national product (1949: U.S.S.R. $65 billion; $250 billion), but in production of key commodities in 1949:
+
+Ingot steel
+
+U.S.
+
+80.4
+
+U.S.S.R.
+
+21.5
+
+(Million met. tons) Primary aluminum
+
+(Thousands met. tons)
+
+617.6
+
+410
+
+130-135
+
+72
+
+Electric power (Billion kwh.)
+
+Crude oil
+
+276.5
+
+112
+
+(Million met. tons)
+
+33.0
+
+U.S.S.R. and European Orbit Combined
+
+28.0
+
+140-145
+
+38.9
+
+Assuming the maintenance of present policies, while a large U.S. advantage is likely to remain, the Soviet Union will be steadily reducing the discrepancy between its overall economic strength and that of the U.S. by continuing to devote proportionately more to capital investment than the U.S.
+
+But a full-scale effort by the U.S. would be capable of precipitately altering this trend. The U.S.S.R. today is on a near maximum production basis. No matter what efforts Moscow might make, only a relatively slight change in the rate of increase in overall production could be brought about. In the U.S., on the other hand, a very rapid absolute expansion could be realized. The fact remains, however, that so long as the Soviet Union is virtually mobilized, and the United States has scarcely begun to summon up its forces, the greater capabilities of the U.S. are to that extent inoperative in the struggle for power. Moreover, as the Soviet attainment of an atomic capability has demonstrated, the totalitarian state, at least in time of peace, can focus its efforts on any given project far more readily than the democratic state.
+
+In other fields-general technological competence, skilled labor resources, productivity of labor force, etc.-the gap between the U.S.S.R. and the U.S. roughly corresponds to the gap in production. In the field of scientific research, however, the margin of United States superiority is unclear, especially if the Kremlin can utilize European talents.
+
+C. Military
+
+The Soviet Union is developing the military capacity to support its design for world domination. The Soviet Union actually possesses armed forces far in excess of those necessary to defend its national territory. These armed forces are probably not yet considered by the Soviet Union to be sufficient to initiate a war which would involve the United States. This excessive strength, coupled now with an atomic capability, provides the Soviet Union with great coercive power for use in time of peace in furtherance of its objectives and serves as a deterrent to the victims of its aggression from taking any action in opposition to its tactics which would risk war.
+
+Should a major war occur in 1950 the Soviet Union and its satellites are considered by the Joint Chiefs of Staff to be in a sufficiently advanced state of preparation immediately to undertake and carry out the following campaigns.
+
+a. To overrun Western Europe, with the possible exception of the Iberian and Scandinavian Peninsulas: to drive toward the oil-bearing areas of the Near and Middle East; and to consolidate Communist gains in the Far East;
+
+b. To launch air attacks against the British Isles and air and sea attacks against the lines of communications of the Western Powers in the Atlantic and the Pacific;
+
+c. To attack selected targets with atomic weapons, now including the likelihood of such attacks against targets in Alaska, Canada, and the United States. Alternatively, this capability, coupled with other actions open to the Soviet Union, might deny the United Kingdom as an effective base of operations for allied forces. It also should be possible for the Soviet Union to prevent any allied "Normandy'' type amphibious
+
+operations intended to force a re-entry into the continent of Europe.
+
+After the Soviet Union completed its initial campaigns and consoli
+
+dated its positions in the Western European area, it could simultaneously con duct:
+
+a. Full-scale air and limited sea operations against the British Isles; b. Invasions of the Iberian and Scandinavian Peninsulas;
+
+c. Further operations in the Near and Middle East, continued air operations against the North American continent, and air and sea operations against Atlantic and Pacific lines of communication; and d. Diversionary attacks in other areas.
+
+During the course of the offensive operations listed in the second and third paragraphs above, the Soviet Union will have an air defense capability with respect to the vital areas of its own and its satellites' territories which can oppose but cannot prevent allied air operations against these areas.
+
+It is not known whether the Soviet Union possesses war reserves and arsenal capabilities sufficient to supply its satellite armies or even its own forces throughout a long war. It might not be in the interest of the Soviet Union to fully equip its satellite armies, since the possibility of defections would exist.
+
+It is not possible at this time to assess accurately the finite disadvantages to the Soviet Union which may accrue through the implementation of the Economic Cooperation Act of 1948, as amended, and the Mutual Defense Assistance Act of 1949. It should be expected that, as this implementation progresses, the internal security situation of the recipient nations should improve concurrently. In addition, a strong United States military position. plus increases in the armaments of the nations of Western Europe, should strengthen the determination of the recipient nations to counter Soviet moves and in event of war could be considered as likely to delay operations and increase the time required for the Soviet Union to overrun Western Europe. In all probability, although United States backing will stiffen their determination, the armaments increase under the present aid programs will not be of any major consequence prior to 1952. Unless the military strength of the Western European nations is increased on a much larger scale than the current programs and at an accelerated rate, it is more likely that those nations will not be able to oppose even by 1960 the Soviet armed forces in war with any degree of effectiveness. Considering the Soviet Union military capability, the long-range allied military objective in Western Europe must envisage an increased military strength in that area sufficient possibly to deter the Soviet Union from a major war, or, in any event, to delay materially the overrunning of Western Europe and, if feasible, to hold a bridgehead on the continent against Soviet Union offensives.
+
+We do not know accurately what the Soviet atomic capability is but the Central Intelligence Agency intelligence estimates, concurred in by State, Army, Navy, Air Force, and Atomic Energy Commission, assign to the So viet Union a production capability giving it a fission bomb stockpile within the following ranges: By mid-1950
+
+10-20
+
+By mid-1951
+
+25-45
+
+45-90
+
+By mid-1952 By mid-1953
+
+By mid-1954
+
+70-135
+
+200
+
+This estimate is admittedly based on incomplete coverage of Soviet activities and represents the production capabilities of known or deducible Soviet plants. If others exist, as is possible, this estimate could lead us into a feeling of superiority in our atomic stockpile that might be dangerously misleading, particularly with regard to the timing of a possible Soviet offensive. On the other hand, if the Soviet Union experiences operating difficulties, this estimate would be reduced. There is some evidence that the Soviet Union is acquiring certain materials essential to research on and development of thermonuclear weapons.
+
+The Soviet Union now has aircraft able to deliver the atomic bomb. Our intelligence estimates assign to the Soviet Union an atomic bomber capabil ity already in excess of that needed to deliver available bombs. We have at present no evaluated estimate regarding the Soviet accuracy of delivery on target. It is believed that the Soviets cannot deliver their bombs on target with a degree of accuracy comparable to ours, but a planning estimate might well place it at 40-60 percent of bombs sortied. For planning purposes. therefore, the date the Soviets possess an atomic stockpile of 200 bombs would be a critical date for the United States for the delivery of 100 atomic bombs on targets in the United States would seriously damage this country.
+
+At the time the Soviet Union has a substantial atomic stockpile and if it is assumed that it will strike a strong surprise blow and if it is assumed further that its atomic attacks will be met with no more effective defense opposition than the United States and its allies have programmed, results of those attacks could include:
+
+a. Laying waste to the British Isles and thus depriving the Western Pow. ers of their use as a base;
+
+b. Destruction of the vital centers and of the communications of Western Europe, thus precluding effective defense by the Western Powers; and c. Delivering 'devastating attacks on certain vital centers of the United States and Canada.
+
+The possession by the Soviet Union of a thermonuclear capability in addition to this substantial atomic stockpile would result in tremendously increased damage.
+
+During this decade, the defensive capabilities of the Soviet Union will probably be strengthened particularly by the development and use of modern aircraft, aircraft warning and communications devices, and defensive guided missiles.
+
+VI. U.S. INTENTIONS AND CAPABILITIES ACTUAL AND POTENTIAL
+
+A. Political and psychological
+
+Our overall policy at the present time may be described as one designed to foster a world environment in which the American system can survive and. flourish. It therefore rejects the concept of isolation and affirms the necessity of our positive participation in the world community.
+
+This broad intention embraces two subsidiary policies. One is a policy which we would probably pursue even if there were no Soviet threat. It is a policy of attempting to develop a healthy international community. The other is the policy of "containing" the Soviet system. These two policies are closely interrelated and interact with one another. Nevertheless, the distinction between them is basically valid and contributes to a clearer understanding of what we are trying to do.
+
+The policy of striving to develop a healthy international community is the long-term constructive effort which we are engaged in. It was this policy which gave rise to our vigorous sponsorship of the United Nations. It is of course the principal reason for our long continuing endeavors to create and now develop the Inter-American system. It. as much as containment. underlay our efforts to rehabilitate Western Europe. Most of our international
+
+economic activities can likewise be explained in terms of this policy. In a world of polarized power, the policies designed to develop a healthy international community are more than ever necessary to our own strength.
+
+As for the policy of "containment", it is one which seeks by all means short of war to (1) block further expansion of Soviet power. (2) expose the falsities of Soviet pretensions, (3) induce a retraction of the Kremlin's control and influence and (4) in general, so foster the seeds of destruction within the Soviet system that the Kremlin is brought at least to the point of modifying its behavior to conform to generally accepted international standards.
+
+It was and continues to be cardinal in this policy that we possess superior overall power in ourselves or in dependable combination with other like minded nations. One of the most important ingredients of power is military strength. In the concept of "containment", the maintenance of a strong military posture is deemed to be essential for two reasons: (1) as an ultimate guarantee of our national security and (2) as an indispensable backdrop to the conduct of the policy of "containment". Without superior aggregate military strength, in being and readily mobilizable, a policy of "containment"-which is in effect a policy of calculated and gradual coercion-is no more than a policy of bluff.
+
+At the same time, it is essential to the successful conduct of a policy of "containment" that we always leave open the possibility of negotiation with the U.S.S.R. A diplomatic freeze--and we are in one now-tends to defeat the very purposes of "containment" because it raises tensions at the same time that it makes Soviet retractions and adjustments in the direction of moderated behavior more difficult. It also tends to inhibit our initiative and deprives us of opportunities for maintaining a moral ascendency in our struggle with the Soviet system.
+
+In "containment" it is desirable to exert pressure in a fashion which will avoid so far as possible directly challenging Soviet prestige, to keep open the possibility for the U.S.S.R. to retreat before pressure with a minimum loss of face and to secure political advantage from the failure of the Kremlin to yield or take advantage of the openings we leave it.
+
+We have failed to adequately implement these two fundamental aspects of "containment". In the face of obviously mounting Soviet military strength ours has declined relatively. Partly as a by-product of this, but also for other reasons. We now find ourselves at a diplomatic impasse with the Soviet Union, with the Kremlin growing bolder, with both of us holding on grimly to what we have and with ourselves facing difficult decisions.
+
+In examining our capabilities it is relevant to ask at the outset-capabilities for what? The answer cannot be stated solely in the negative terms of resisting the Kremlin design. It also includes our capabilities to attain the fundamental purpose of the United States, and to foster a world environment in which our free society can survive and flourish.
+
+Potentially we have these capabilities. We know we have them in the economic and military fields. Potentially we also have them in the political and psychological fields. The vast majority of Americans are confident in the system of values which animates our society-the principles of freedom, tolerance. the importance of the individual and the supremacy of reason over will-are valid and more vital than the ideology which is the fuel of Soviet dynamism. Translated into terms relevant to the lives of other peoples-our system of values can become perhaps a powerful appeal to millions who now seek or find in authoritarianism a refuge from anxieties, bafflement and insecurity.
+
+Essentially, our democracy also possesses a unique degree of unity. Our society is fundamentally more cohesive than the Soviet system, the solidarity of which is artificially created through force, fear and favor. This means that expressions of national consensus in our society are soundly and solidly based. It means that the possibility of revolution in this country is fundamentally less than that in the Soviet system.
+
+These capabilities within.us.constitute a great potential force in our later national relations. The potential within us of bearing witness to the values by which we live holds promise for a dynamic manifestation to the rest of the world of the vitality of our system. The essential tolerance of our world outlook, our generous and constructive impulses, and the absence of covel ousness in our international relations are assets of potentially enormous influence.
+
+These then are our potential capabilities. Between them and our capabilities currently being utilized is a wide gap of unactualized power. In sharp contrast is the situation of the Soviet world. Its capabilities are inferior to those of our Allies and to our own. But they are mobilized close to the maximum possible extent.
+
+The full power which resides within the American people will be evoked only through the traditional democratic process: This process requires, firstly, that sufficient information regarding the basic political, economic and military elements of the present situation be made publicly available so that an intelligent popular opinion may be formed. Having achieved a comprehension of the issues now confronting this Republic, it will then be possible for the American people and the American Government to arrive at a consensus. Out of this common view will develop a determination of the national will and a solid resolute expression of that will. The initiative in this process lies with the Government.
+
+The democratic way is harder than the authoritarian way because, in seeking to protect and fulfill the individual, it demands of him understanding. judgment and positive participation in the increasingly complex and exacting problems of the modern world. It demands that he exercise discrimination: that while pursuing through free inquiry the search for truth he knows when he should commit an act of faith; that he distinguish between the necessity for tolerance and the necessity for just suppression. A free society is vulnerable in that it is easy for people to lapse into excesses-the excesses of a permanently open mind wishfully waiting for evidence that evil design may become a noble purpose. the excess of faith becoming prejudice, the excess of tolerance degenerating into indulgence of conspiracy and the excess of resorting to suppression when more moderate measures are not only more appropriate but more effective.
+
+In coping with dictatorial governments acting in secrecy and with speed. we are also vulnerable in that the democratic process necessarily operates in the open and at a deliberate tempo. Weaknesses in our situation are readily apparent and subject to immediate exploitation. This Government therefore cannot afford in the face of the totalitarian challenge to operate on a narrow margin of strength. A democracy can compensate.for its natural vulnicura bility only if it maintains clearly superior overall power in its most inclusive sense.
+
+The very virtues of our system likewise handicap us in certain respects in our relations with our allies. While it is a general source of strength to us that our relations with our allies are conducted on a basis of persuasion and consent rather than compulsion and capitulation, it is also evident that dissent among us can become a vulnerability. Sometimes dissent has its principal roots abroad in situations about which we can do nothing. Sometimes it arises largely out of certain weaknesses within ourselves. about which we can do something-our native impetuosity and a tendency to expect too much from people widely divergent from us.
+
+The full capabilities of the rest of the free world are a potential increment to our own capabilities. It may even be said that the capabilities of the So viel world, specifically the capabilities of the masses who have nothing to lose but their So Viel chains. are a potential which can be enlisted on our side.
+
+Like our own capabilities. Those of the rest of the free world exceed the capabilities of the Soviet system. Like our own they are far from being effectively mobilized and employed in the struggle against the Kremlin design. This is so because the rest of the free world lacks a sense of unity. confidence and common purpose. This is true in even the most homogeneous and advanced segment of the free world-Western Europe.
+
+As we ourselves demonstrate power, confidence and a sense of moral and political direction. so those same qualities will be evoked in Western Europe. In such a situation, we may also anticipate a general improvement in the political tone in Latin America. Asia and Africa and the real beginnings of awakening among the Soviet totalitarian.
+
+In the absence of affirmative decision on our part, the rest of the free world is almost certain to become demoralized. Our friends will become more than a liability to us: they can eventually become a positive increment to Soviet power.
+
+In sum, the capabilities of our allies are in an important sense, a function of our own. An affirmative decision to summon up the potential within ourselves would evoke the potential strength within others and add it to our own.
+
+B. Economic
+
+1. Capabilities. In contrast to the war economy of the Soviet world (cf. Ch. V-B), the American economy (and the economy of the free world as a whole) is at present directed to the provision of rising standards of living. The military budget of the United States represents 6 to 7 percent of its gross national product (as against 13.8 percent for the Soviet Union). Our North Atlantic Treaty allies devoted 4.8 percent of their national product to mili tary purposes in 1949.
+
+This difference in emphasis between the two economies means that the readiness of the free world to support a war effort is tending to decline relative to that of the Soviet Union. There is little direct investment in production facilities for military end-products and in dispersal. There are relatively few men receiving military training and a relatively low rate of production of weapons. However, given time to convert to a war effort, the capabilities of the United States economy and also of the Western European economy would be tremendous. In the light of Soviet military capabilities, a question which may be of decisive importance in the event of war is the question whether there will be time to mobilize our superior human and material resources for a war effort (cf. Chs. VIII and IX).
+
+The capability of the American economy to support a build-up of economic and military strength at home and to assist a build-up abroad is limited not, as in the case of the Soviet Union, so much by the ability to produce as by the decision on the proper allocation of resources to this and other purposes. Even Western Europe could afford to assign a substantially larger proportion of its resources to defense, if the necessary foundation in public understanding and will could be laid, and if the assistance needed to meet its dollar deficit were provided. A few statistics will help to clarify this point.
+
+Percentage of Gross Available Resources Allocated to Investment, National Defense. and Consumption in East and West, 1949
+
+(in percent of total)
+
+Country U.S.S.R.
+
+Investment
+
+25.4
+
+Gross
+
+Sovici Orbil
+
+U.S.
+
+22.0 13.6
+
+20.4
+
+European NAP countries
+
+Defense
+
+13.8
+
+4.0³
+
+6.5
+
+74.0
+
+79.9
+
+4. Crude estimate. [Note in source text
+
+Consumption 60.8
+
+6. North Atlantic Pact. [Ed. notel
+
+74.8
+
+5. Includes the Soviet zone of Germany, otherwise 3 percent.
+
+The Soviet Union is now allocating nearly 40 percent of its gross avail. able resources to military purposes and investment, much of which is in war-supporting industries. It is estimated that even in an emergency the Soviet Union could not increase this proportion to much more than 30 percent, or by one-fourth. The United States, on the other hand, is allocating only about 20 percent of its resources to defense and investment (or 22 percent including foreign assistance), and little of its investment outlays are directed to war-supporting industries. In an emergency the United States could allocate more than 50 percent of its resources to military purposes and foreign assistance, or five to six times as much as at present.
+
+The same point can be brought out by statistics on the use of important products. The Soviet Union is using 14 percent of its ingot steel, 47 percent of its military aluminum, and 18.5 percent of its crude oil for military purposes, while the corresponding percentages for the United States are 1.7. 8.6, and 5.6. Despite the tremendously larger production of these goods in the United States than the Soviet Union, the latter is actually using, for military purposes, nearly twice as much steel as the United States and 8 to 26 percent more aluminum.
+
+Perhaps the most impressive indication of the economic superiority of the free world over the Soviet world which can be made on the basis of available data is provided in the following comparisons (based mainly on the Economic Survey of Europe. 1948):1
+
+It should be noted that these comparisons understate the relative position of the NAT countries for several reasons: (1) Canada is excluded because comparable data were not available; (2) the data for the U.S.S.R. are the 1950 targets (as stated in the fourth five-year plan) rather than actual rates of production and are believed to exceed in many cases the production actually achieved; (3) the data for the European NAT counties are actual data for 1948, and production has generally increased since that time.
+
+Furthermore, the United States could achieve a substantial absolute increase in output and could thereby increase the allocation of resources to a build-up of the economic and military strength of itself and its allies without suffering a decline in its real standard of living. Industrial production declined by 10 percent between the first quarter of 1948 and the last quarter of 1949, and by approximately one-fourth between 1944 and 1949. In March 1950 there were approximately 4,750,000 unemployed, as compared to 1.070.000 in 1943 and 670,000 in 1944. The gross national product declined slowly in 1949 from the peak reached in 1948 (3262 billion in 1948 to an annual rate of $256 billion in the last six months of 1949), and in terms of constant prices declined by about 20 percent between 1944 and 1948.
+
+With a high level of economic activity, the United States could soon stain a gross national product of $300 billion per year, as was pointed out in the President's Economic Report (January 1950). Progress in this direction would permit, and might itself be aided by, a build-up of the economic and military strength of the United States and the free world: furthermore, if a dynamic expansion of the economy were achieved, the necessary build-up could be accomplished without a decrease in the national standard of living because the required resources could be obtained by siphoning off a part of the annual increment in the gross national product. These are facts of fundamental importance in considering the courses of action open to the United States (cf. Ch. IX).
+
+2. Intentions. Foreign economic policy is a major instrument in the conduct of United States foreign relations. It is an instrument which can powerfully influence the world environment in ways favorable to the security and welfare of this country. It is also an instrument which, if unwisely formulated and employed, can do actual harm to our national interests. It is an instrument uniquely suited to our capabilities, provided we have the tenacity of purpose and the understanding requisite to a realization of its potentials. Finally, it is an instrument peculiarly appropriate to the cold war.
+
+The preceding analysis has indicated that an essential element in a program to frustrate the Kremlin design is the development of a successfully functioning system among the free nations. It is clear that economic conditions are among the fundamental determinants of the will and the strength to resist subversion and aggression.
+
+United States foreign economic policy has been designed to assist in the building of such a system and such conditions in the free world. The prin
+
+cipal features of this policy can be summarized as follows: (1) assistance to Western Europe in recovery and the creation of a viable
+
+economy (the European Recovery Program): (2) assistance to other countries because of their special needs arising out
+
+of the war or the cold war and our special interests in or responsibility for meeting them (grant assistance to Japan. the Philippines, and Korea. loans and credits by the Export-Import Bank, the International Monetary Fund, and the International Bank to Indonesia, Yugoslavia, Iran, etc.):
+
+(3) assistance in the development of under-developed areas (the Point IV program and loans and credits to various countries, overlapping to
+
+some extent with those mentioned under 2): (4) military assistance to the North Atlantic Treaty countries, Greece,
+
+Turkey, etc.: (5) restriction of East-West trade in items of military importance to the
+
+East;
+
+(6) purchase and stockpiling of strategic materials; and
+
+(7) efforts to re-establish an international economy based on multilateral trade. declining trade barriers, and convertible currencies (the GATT-ITO program, the Reciprocal Trade Agreements program, the IMF-IBRD program, and the program now being developed to solve the problem of the United States balance of payments).
+
+In both short and long term aspects, these policies and programs are directed to the strengthening of the free world and therefore to the frustration of the Kremlin design. Despite certain inadequacies and inconsistencies, which are now being studied in connection with the problem of the United States balance of payments, the United States has generally pursued a foreign economic policy, which has powerfully supported its overall objectives. The question must nevertheless be asked whether current and currently projected programs will adequately support this policy in the future, in terms both of need and urgency.
+
+The last year has been indecisive in the economic field. The Soviet Union has made considerable progress in integrating the satellite economies of Eastern Europe into the Soviet economy, but still faces very large problems. especially with China. The free nations have important accomplishments to record, but also have tremendous problems still ahead. On balance, neither side can claim any great advantage in this field over its relative position a year ago. The important question therefore becomes: what are the trends?
+
+Several conclusions seem to emerge. First, the Soviet Union is widening the gap between its preparedness for war and the unpreparedness of the free world for war. It is devoting a far greater proportion of its resources to military purposes than are the free nations and, in significant components of military power, a greater absolute quantity of resources. Second, the Commu nist success in China, taken with the politico-economic situation in the rest of South and South-East Asia. provides a springboard for a further incursion in this troubled area. Although Communist China faces serious economic problems which may impose some strains on the Soviet economy, it is probable that the social and economic problems faced by the free nations in this area present more than offsetting opportunities for Communist expansion. Third, the Soviet Union holds positions in Europe which, if it maneuvers skillfully, could be used to do great damage to the Western European economy and to the maintenance of the Western orientation of certain countries. particularly Germany and Austria. Fourth, despite (and in part because of the Titoist defection, the Soviet Union has accelerated its efforts to integrate satellite economy with its own and to increase the degree of autarchy within the areas under its control.
+
+Fifth, meanwhile, Western Europe, with American (and Canadian) assistance, has achieved a record level of production. However, it faces the prospect of a rapid tapering off of American assistance without the possibility of achieving, by its own efforts, a satisfactory equilibrium with the dollar area. It has also made very little progress toward "economic integration", which would in the long run tend to improve its productivity and to provide an economic environment conducive to political stability. In particular, the movement towards economic integration does not appear to be rapid enough to provide Western Germany with adequate economic opportunities in the West. The United Kingdom still faces economic problems which may require a moderate but politically difficult decline in the British standard of living or more American assistance than is contemplated. At the same time, a strengthening of the British position is needed if the stability of the Commonwealth is not to be impaired and if it is to be a focus of resistance to Communist expansion in South and South-East Asia. Improvement of the British position is also vital in building up the defensive capabilities of Western Europe.
+
+Sixth, throughout Asia the stability of the present moderate governments. which are more in sympathy with our purposes than any probable successor regimes would be, is doubtful. The problem is only in part an economic one. Assistance in economic development is important as a means of holding out to the peoples of Asia some prospect of improvement in standards of living under their present governments. But probably more important are a strengthening of central institutions, an improvement in administration, and generally a development of an economic and social structure within which the peoples of Asia can make more effective use of their great human and material resources.
+
+Seventh, and perhaps most important, there are indications of a let-down of United States efforts under the pressure of the domestic budgetary situation, disillusion resulting from excessively optimistic expectations about the duration and results of our assistance programs, and doubts about the wisdom of continuing to strengthen the free nations as against preparedness measures in light of the intensity of the cold war.
+
+Eighth, there are grounds for predicting that the United States and other free nations will within a period of a few years at most experience a decline in economic activity of serious proportions unless more positive governmental programs are developed than are now.available.
+
+In short, as we look into the future, the programs now planned will not meet the requirements of the free nations. The difficulty does not lic so much in the inadequacy or misdirection of policy as in the inadequacy of planned programs, in terms of timing or impact, to achieve our objectives.
+
+The risks inherent in this situation are set forth in the following chapter and a course of action designed to reinvigorate our efforts in order to reverse the present trends and to achieve our fundamental purpose is outlined in Chapter IX.
+
+C. Military
+
+The United States now possesses the greatest military potential of any single nation in the world. The military weaknesses of the United States vis à-vis the Soviet Union, however, include its numerical inferiority in forces in being and in total manpower. Coupled with the inferiority of forces in being, the United States also lacks tenable positions from which to employ its forces in event of war and munitions power in being and readily available.
+
+It is true that the United States armed forces are now stronger than ever before in other times of apparent peace; it is also true that there exists a sharp disparity between our actual military strength and our commitments. The relationship of our strength to our present commitments, however, is not alone the governing factor. The world situation, as well as commitments, should govern: hence, our military strength more properly should be related to the world situation confronting us. When our military strength is related to the world situation and balanced against the likely exigencies of such a situation, it is clear that our military strength is becoming dangerously inadequate.
+
+If war should begin in 1950, the United States and its allies will have the military capability of conducting defensive operations to provide a reasonable measure of protection to the Western Hemisphere, bases in the Western Pacific, and essential military lines of communication; and an inadequate measure of protection to vital military bases in the United Kingdom and in the Near and Middle East. We will have the capability of conducting powerful offensive air operations against vital elements of the Soviet warmaking capacity.
+
+The scale of the operations listed in the preceding paragraph is limited by the effective forces and material in being of the United States and its allies vis-à-vis the Soviet Union. Consistent with the aggressive threat facing us and in consonance with overall strategic plans, the United States must provide to its allies on a continuing basis as large amounts of military assistance as possible without serious detriment to United States operational requirements.
+
+If the potential military capabilities of the United States and its allies were rapidly and effectively developed, sufficient forces could be produced to deter war, or if the Soviet Union chooses war, to withstand the initial Soviet attacks, to stabilize supporting attacks, and to retaliate in turn with even greater impact on the Soviet capabilities. From the military point of view alone, however, this would require not only the generation of the necessary military forces but also the development and stockpiling of improved weapons of all types.
+
+Under existing peacetime conditions, a period of from two to three years is required to produce a material increase in military power. Such increased power could be provided in a somewhat shorter period in a declared period of emergency or in wartime through a full-out national effort. Any increase in military power in peacetime, however, should be related both to its probable military role in war, to the implementation of immediate and long-term United States foreign policy vis-à-vis the Soviet Union and to the realities of the existing situation. If such a course of increasing our military power is adopted now, the United States would have the capability of eliminating the disparity between its military strength and the exigencies of the situation we face: eventually of gaining the initiative in the "cold'' war and of materially delaying if not stopping the Soviet offensives in war itself.
+
+Conclusions and Recommendations
+
+CONCLUSIONS
+
+The foregoing analysis indicates that the probable fission bomb capability and possible thermonuclear homb capability of the Soviet Union have greatly intensified the Soviet threat to the security of the United States. This threat is of the same character as that described in NSC 20/4 (approved by the President on November 24, 1948) but is more immediate than had previously been estimated. In particular, the United States now faces the contingency that within the next four or five years the Soviet Union will possess the military capability of delivering a surprise atomic attack of such weight that the United States must have substantially increased general air, ground, and sea strength, atomic capabilities, and air and civilian defenses to deter war and to provide reasonable assurance, in the event of war, that it I could survive the initial blow and go on to the eventual attainment of its objectives. In turn, this contingency requires the intensification of our efforts
+
+in the fields of intelligence and research and development. Allowing for the immediacy of the danger, the following statement of Soviet threats, contained in NSC 20/4, remains valid:
+
+14. The gravest threat to the security of the United States within the foreseeable future stems from the hostile designs and formidable power of the U.S.S.R., and from the nature of the Soviet system.
+
+15. The political, economic, and psychological warfare which the U.S.S.R. is now waging has dangerous potentialities for weakening the relative world position of the United States and disrupting its traditional institutions by means short of war, unless sufficient resistance is encountered in the policies of this and other non communist countries. 16. The risk of war with the U.S.S.R. is sufficient to warrant, in common pru
+
+dence, timely and adequate preparation by the United States. a. Even though present estimates indicate that the Soviet leaders probably do
+
+not intend deliberate armed action involving the United States at this time, the possibility of such deliberate resort to war cannot be ruled out.
+
+b. Now and for the foreseeable future there is a continuing danger that war will arise either through Soviet miscalculation of the determination of the United States to use all the means at its command to safeguard its security,
+
+through Soviet misinterpretation of our intentions, or through U.S. mis calculation of Soviet reactions to measures which we might take. 17. Soviet domination of the potential power of Eurasia, whether achieved by
+
+armed aggression or by political and subversive means, would be strategically and politically unacceptable to the United States. 18. The capability of the United States either in peace or in the event of war to
+
+cope with threats to its security or to gain its objectives would be severely weakened
+
+by internal developments, important among which are: a. Serious espionage, subversion and sabotage, particularly by concerted and
+
+well-directed communist activity. b. Prolonged or exaggerated economic instability.
+
+c. Internal political and social disunity.
+
+d. Inadequate or excessive armament or foreign aid expenditures.
+
+e. An excessive or wasteful usage of our resources in time of peace.
+
+f. Lessening of U.S. prestige and influence through vacillation or appeasement or lack of skill and imagination in the conduct of its foreign
+
+policy or by shirking world responsibilities. g. Development of a false sense of security through a deceptive change in So
+
+viel tactics.
+
+Although such developments as those indicated in paragraph 18 above would severely weaken the capability of the United States and its allies to cope with the Soviet threat to their security, considerable progress has been made since 1948 in laying the foundation upon which adequate strength can now be rapidly built.
+
+The Analysis also confirms that our objectives with respect to the Soviet Union, in time of peace as well as in time of war, as stated in NSC 20/4 (para. 19), are still valid, as are the aims and measures stated therein (paras. 20 and 21). Our current security programs and strategic plans are based upon these objectives, aims, and measures:
+
+19. a. To reduce the power and influence of the U.S.S.R. to limits which no longer constitute a threat to the peace, national independence and stability
+
+of the world family of nations.
+
+b. To bring about a basic change in the conduct of International relations by the government in power in Russia, to conform with the purposes and principles set forth in the U.N. Charter.
+
+In pursuing these objectives, due care must be taken to avoid permanently impairing our economy and the fundamental values and Institutions inherent in our way of life. 20. We should endeavor to achieve our general objectives by methods short of war through the pursuit of the following aims:
+
+a. To encourage and promote the gradual retraction of undue Russian power and influence from the present perimeter areas around traditional Russian boundaries and the emergence of the satellite countries as entities independent of the U.S.S.R.
+
+b. To encourage the development among the Russian peoples of attitudes which may help to modify current Soviet behavior and permit a revival of the national life of groups evidencing the ability and determination to achieve and maintain national independence.
+
+c. To eradicate the myth by which people remote from Soviet military influ. ence are held in a position of subservience to Moscow and to cause the world at large to see and understand the true nature of the U.S.S.R. and the Soviet-directed world communist party, and to adopt a logical and realistic attitude toward them.
+
+d. To create situations which will compel the Soviet Government to recognize the practical undesirability of acting on the basis of its present concepts and the necessity of behaving in accordance with precepts of international conduct, as set forth in the purposes and principles of the U.N. Charter. 21. Attainment of these aims requires that the United States:
+
+a. Develop a level of military readiness which can be maintained as long as necessary as a deterrent to Soviet aggression, as indispensable support to our political attitude toward the U.S.S.R., as a source of encouragement to nations resisting Soviet political aggression, and as an adequate basis for immediate military commitments and for rapid mobilization should war prove unavoidable.
+
+b. Assure the internal security of the United States against dangers of sabo. tage, subversion, and espionage.
+
+c. Maximize our economic potential, including the strengthening of our
+
+peacetime economy and the establishment of essential reserves readily
+
+available in the event of war. d. Strengthen the orientation toward the United States of the non-Soviet nations: and help such nations as are able and willing to make an important contribution to U.S. security, to increase their economic and political stability and their military capability.
+
+e. Place the maximum strain on the Soviet structure of power and particularly on the relationships between Moscow and the satellite countries. Keep the U.S. public fully informed and cognizant of the threats to our national security so that it will be prepared to support the measures which we must accordingly adopt.
+
+In the light of present and prospective Soviet atomic capabilities, the action which can be taken under present programs and plans, however, becomes dangerously inadequate, in both timing and scope, to accomplish the rapid progress toward the attainment of the United States political, economic, and military objectives which is now imperative.
+
+A continuation of present trends would result in a serious decline in the strength of the free world relative to the Soviet Union and its satellites. This unfavorable trend arises from the inadequacy of current programs and plans rather than from any error in our objectives and aims. These trends lead in the direction of isolation not by deliberate decision but by lack of the necessary basis for a vigorous initiative in the conflict with the Soviet Union.
+
+Our position as the center of power in the free world places a heavy responsibility upon the United States for leadership. We must organize and enlist the energies and resources of the free world in a positive program for peace which will frustrate the Kremlin design for world domination by creating a situation in the free world to which the Kremlin will be compelled to adjust. Without such a cooperative effort, led by the United States, we will have to make gradual withdrawals under pressure until we discover one day that we have sacrificed positions of vital interest.
+
+It is imperative that this trend be reversed by a much more rapid and concerted build-up of the actual strength of both the United States and the other nations of the free world. The analysis shows that this will be costly and will involve significant domestic financial and economic adjustments.
+
+The execution of such a build-up, however, requires that the United States have an affirmative program beyond the solely defensive one of countering the threat posed by the Soviet Union. This program must light the path to peace and order among nations in a system based on freedom and justice, as contemplated in the Charter of the United Nations. Further, it must envisage the political and economic measures with which and the military shield behind which the free world can work in frustrate the Kremlin design by the strategy of the cold war; for every consideration of devotion to our fundamental values and to our national security demands that we achieve our objectives by the strategy of the cold war, building up our military strength in order that it may not have to be used. The only sure victory lies in the frustration of the Kremlin design by the steady development of the moral
+
+and material strength of the free world, and its projection into the Soviet world in such a way as to bring about an internal change in the Soviet system. Such a positive program-harmonious with our fundamental national purpose and our objectives-is necessary if we are to regain and retain the initiative and to win and hold the necessary popular support and cooperation in the United States and the rest of the free world.
 
 -----END OF READING-----
 
-THE 20TH CENTURY IS THE AMERICAN CENTURY
+DWIGIT D. EISENHOWER
 
-Some facts about our time
+Farewell Address
 
-Consider the Soch Century. It is not only the sense that we happen to live there but ours also because it is America's first century as a dominant power in the world. So far, this century of ours has been a profound and tragic disappointment. No other century has been so big with promise for human progress and happiness. And in no one century have so many men and women and children suffered such pain and anguish and bitter death.
+Good evening, my fellow Americans.
 
-It is a baffling and difficult and paradoxical century. No doubt all centuries were paradoxical to those who had to cope with them. But, like everything else, our paradoxes today are bigger and better than ever. Yes, better as well as bigger-inherently better. We have poverty and starvation -but only in the midst of plenty. We have the biggest wars in the midst of the most widespread, the deepest and the most articulate hatred of all history. We have tyrannies and dictatorships-but only when democratic idealism, once regarded as the dubious eccentricity of a colonial nation, is the faith of a huge majority of the people of the world.
+First, I would like to express my gratitude to the radio and television networks for the opportunities they have given me over the years to bring reports and messages to our nation. My special thanks go to them for the opportunity to address you this evening.
 
-And ours is also a revolutionary century. The paradoxes make it inevitably In science and Revolutionary, e of course, And also revolutionary, as a corollary in politics and of society. But to that a revolution is in structure not to say that the men with no progress are either the craziest ideas or the angriest Ideat or the most plausible ideas are going to come out on top. The Revolution 1776 was won and established by men most of whom spoke to have been both gentlemen and men of common sense. Clearly a revolutionary epoch signifies great changes, adjustments. And this is only one reason why it is really so
+Three days from now, after half a century in the service of our country, I shall lay down the responsibilities of office as, in a traditional and solemn ceremony, the authority of the presidency is vested in my successor.
 
-foolish for people to worry about our "constitutional democ
+This evening I come to you with a message of leave-taking and farewell and to share a few final thoughts with you, my countrymen. Like every other citizen, I wish the new president, and all who will labor with him, Godspeed. I pray that the coming years will be blessed with peace and prosperity for all.
 
-racy" without worrying or, bewer, thinking hard about the
+Our people expect their president and the Congress to find essential agreement on issues of great moment, the wise resolution of which will better shape the future of the nation.
 
-world revolution. For only as we go out to meet and solve for our time the problems of the world revolution, can we know how to re-establish our constitutional democracy for another 10 or 100 years.
+My own relations with the Congress, which began on a remote and tenuous basis when, long ago; a member of the Senate appointed me to West Point, have since ranged to the intimate during the war and immediate post-war period, and finally to the mutually interdependent during these past eight years. In this final relationship, Congress and the administration have, on most vital issues, cooperated well, to serve the national good rather than mere partisanship, and so have assured that the business of the nation should go forward. So my official relationship with the Congress ends in a feeling, on my part, of gratitude that we have been able to do so much together.
 
-This 20th Century is baffling, difficult, paradoxical, revolutionary but by now, at the cost of much pain and many hopes deferred, we know a good deal about it. And we ought to accommodate our outlook to this knowledge so dearly bought. For example, say tres conception of our world of the 20th Century must surely include a vivid awareness of at least these four propositions,
+We now stand 10 years past the midpoint of a century that has witnessed four major wars among great nations-three of these involved our own country. Despite these holocausts, America is today the strongest, the most influential and most productive nation in the world. Understandably proud of this pre-eminence, we yet realize that America's leadership and prestige depend, not merely upon our unmatched material progress, but on how we use our power in the interest of world peace and human betterment.
 
-First: our world of 1,000,000,000 human beings is for the first time in history one world, fundamentally indivisible. Second: modera man hates war and feels intuitively that, in its present scale and frequency, it may even be fatal to his species. Third: our world, again for the first time in human history, is capable of producing all the material needs of the entire human family. Fourth: the world of the 20th Century, if it is to come to life in any nobility of health and vigor, must be to a significant degree an American Century.
+Throughout America's adventure in free government, our basic purposes have been to keep the peace, to foster progress in human achievement and to enhance liberty, dignity and integrity among people and among nations. To strive for less would be unworthy of a free and religious people. Any failure traceable to arrogance, or our lack of comprehension or readiness to sacrifice would inflict upon us grievous hurt both at home and abroad.
 
-As to the first and second: in postulating the indivisibility of the contemporary world, one does not necessarily imagine that anything like a world state-a parliament of men-muse be brought about in this century. Nor need we assume that war can be abolished. All that it is necessary to feel-and to feel deeply-is that terrific forces of magnetic attraction and repulsion will operate as between every large group of human beings on this planet. Large sections of the human family may be effectively organized into opposition to each other. Tyrannies may require a large amount of living space. But Freedom requires and will require far greater living space. than Tyranny. Peace cannot endure unless it prevails over a very large part of the world. Justice will come near to losing all meaning in the minds of men unless Justice can have approximately the same fundamental meanings in many lands and among many peoples. As to the third point-the promise of adequate production for all mankind, the "more abundant life"-be it noted that this is characteristically an American promise. It is a promise easily made, here and elsewhere, by demagogues and proponents of all manner of alick schemes and "planned econora-, ies." What we must insist on is that the abundant life is predicated on Freedom-on the Freedom which has created less possibility-on a vision of Freedom under Law. Without Freedora, there will be no abundant life. With Freedom, there can be.
+Progress toward these noble goals is persistently threatened by the conflict now engulfing the world. It commands our whole attention, absorbs our very being.
 
-And finally there is the belief-shared let us remember by most men living-that the 20th Century must be to a significant degree an American Century. This knowledge calls us to action now.
+We face a hostile ideology-global in scope, atheistic in charac
 
-AMERICA'S VISION OF OUR WORLD
+ter, ruthless in purpose and insidious in method. Unhappily, the
 
-... How it shall be created
+the danger it poses promises to be of indefinite duration. To meet it successfully there is not so much the emotional and transitory sacrifices of crisis, but rather those which enable us to carry forward steadily, surely and without complaint the burdens of a prolonged and complex struggle with liberty at the stake. Only thus shall we remain, despite every provocation, on our charted course toward permanent peace and human betterment.
 
-What can we say and foresce about an American Century? It is meaningless merely to say that we reject isolationism and accept the logic of internationalism. What international alisma Rome had great internationalism. So had the Vatican and Genghis Khan and the Ottoman Turks and the Chinese Emperors and 19ch ( World War, Lenin had one Henry England. After the first in mind. Today Hitler seems to have one in mind-one which appeals strongly to some AmerIcan-isolationists whose opinion of Europe is so low that they would gladly hand it over to anyone who would guarantee to destroy it forever. But what internationalism have we Americans to offert
+Crises there will continue to be. In meeting them, whether foreign or domestic, great or small, there is a recurring temptation to feel that some spectacular and costly action could become the
 
-be Ours cannot come out of the vision of any one man. It must be the product of the imaginations of many mea. It must be shared with all peoples of our Bill of Rights, our Declaration of Independence, our Constitution, our magnificent industrial products, and our technical skills. It must be an International Jam of the people, by the people sod for the people. In general, the issues which the American people champion revolve around their determination to make the society of men safe for the freedom, growth and increasing satisfaction of all individual men. Beside that resolve, the answers, groans, catcalls, cecch-grinding, hisses and roars of the Narl Prop agenda Ministry are of small moment.
+miraculous solution to all current difficulties. A huge increase in newer elements of our defense; development unrealistic programs to cure every ill in agriculture; a dramatic expansion in basic and applied research-these and many other possibilities, each possibly promising in itself, may be suggested as the only way to the road we wish to travel.
 
-Once we cease to distract ourselves with lifeless arguments about isolationism, we shall be amazed to discover that there is already an immense American Internationalism. American jazz, Hollywood movies, American slang, American machines and patented products, are in fact the only things that every community in the world, from Zanzibar to Hamborg, recognises in common. Blindly, unintentionally, accidentally and really in spite of ourselves, we are already a world power in all the trivial ways-in very human ways. But there is a great deal more than that. America is already the intellectual, scientific and artistic capital of the world. Americans-Midwestern Americant-are today the least provincial people in the world. They have traveled the most and they know more about the world than the people of any other country. America's worldwide experience in commerce is also far greater than most of us realize.
+But each proposal must be weighed in the light of a broader consideration: the need to maintain balance in and among national programs-balance between the private and the public economy, balance between cost and hoped for advantage, balance between the clearly necessary and the comfortably desirable; balance between our essential requirements as a nation and the duties imposed by the nation upon the individual; balance between actions of the moment and the national welfare of the future. Good judgment seeks balance and progress; lack of it eventually finds imbalance and frustration.
 
-Most important of all, we have that indefinable, unmistakable sign of leadership: prestige. And unlike the prestige of Rome or Genghis Khan or 19th Century England, American prestige throughout the world is faith in the good intentions as well as in the ultimate intelligence and ultimate strength of the whole American people. We have lost some of that prestige in the last few years. But most of it is still there,
+The record of many decades stands as proof that our people and their government have, in the main, understood these truths and have responded to them well, in the face of stress and threat. But threats, new in kind or degree, constantly arise. I will mention two only.
 
-No narrow definition can be given to the American internationalism of the 20th Century. It will také shape, as all civilizations take shape, by the living of it, by work and effort, by trial and error, by enterprise and adventure and experience.
+A vital element in keeping the peace is our military establishment. Our arms must be mighty, ready for instant action, so that no potential aggressor may be tempted to risk his own destruction.
 
-And by imagination! As America enters the world scene, we need most of all to seek and to bring forth a vision of America & world power which is authentically American and which can inspire us to live and work and fight with vigor and enthusiasm. And as we come now to the great test, it yet turn out that in all our trials and tribulations of spirit I may during the first part of this century we as a people have been painfully apprehending the meaning of our time and now in this moment of testing there may come clear at last the vision which will guide us to the authentic creation of the Loch Century-our Century.
+Our military organization today bears little relation to that known by any of my predecessors in peacetime, or indeed by the fighting men of World War II or Korea.
 
-Consider four areas of life and thought in which we may
+Until the latest of our world conflicts, the United States had no armaments industry. American makers of plowshares could, with time and as required, make swords as well. But now we can no longer risk emergency improvisation of national defense; we have been compelled to create a permanent armaments industry of vast proportions.
 
-Hock to realize such a vision: Pirst, the economy. It is for America and for America alone to determine whether a system of free economic enterprise-an economic order compatible with freedom and rass-shell. 1. or shall not prevail in this century. We know perfectly well that there is not the slightest chance of any. thing falodly resembling a free economic system prevailing in this country if it prevails nowhere else. What then does Aperice have to decide? Some few deck plans are quite simple, For example we have to decide whether or not we shall have for ourselves and our friends freedom of the seas-the right and our ocean-going airplanes where we to go with our ships and as we wish. The vision of America as the principal guarantor of the freedom of the seas, the visions of Americas as the dynamic leader of world trade, I have within it the Amorous human progress possibilities of soch ano as to stagger the Imagination. Let's not be staggered by it. Let us rise to the tremendous possibilities. Our thinking of world trade today is on ridiculously small terms. For example, we think of Asis as being worth only a few hundred millions a year to us. Actually, in the decades to come Asia
+Added to this, three and a.half million men and women are directly engaged in the defense establishment. We annually spend on military security more than the net income of all United States corporations.
 
-will be worth to us exactly zero-or else it will be worth four, five, ten billions of dollars a year. And the latter are the terme ve mest think of, or else confess a pitiful impotence.
+This conjunction of an immense military establishment and a large arms industry is new in the American experience. The total influence-economic, political, even spiritual-is felt in every city. every state house, every office of the federal government. We recognize the imperative need for this development. Yet we must not fail to comprehend its grave implications. Our toil, resources and livelihood are all involved; so is the very structure of our society.
 
-Closely akin to the purely economic area and yet quite different from it, there is the picture of an America which will send out through the world its technical and artistic skills. Engineers, scientists, doctors, movie men, makers of entertainment, developers of airlines, builders of roads, teachers, educators. Throughout the world, these skills, this training. This leadership is needed and will be eagerly welcomed, if only we have the imagination to see it and the sincerity and good will to create the world of the 20th Century.
+In the councils of government, we must guard against the acquisition of unwarranted influence, whether sought or unsought, by the military-industrial complex. The potential for the disastrous rise of misplaced power exists and will persist.
 
-But now there is a third thing which our vision must immediately be concerned with. We must undertake now to be the Good Samaritan of the entire world. It is the manifest dury of this country to undertake to feed all the people of the world who as a result of this worldwide collapse of civilization. tion are hungry and destitute-all of them, that is, where we can from time to time reach consistently with a very tough attitude toward all hostile governments. For every dollar we spend on armaments, we should spend at least a dime in a gigantic effort to feed the world-and all the world should know that we have dedicated ourselves to this task. Every farmer in America should be encouraged to produce all the crops he can, and all that we cannot eat-and perhaps some of us could eat less-should forthwich be dispatched to the four quarters of the globe as a free gift, administered by a humanitarian army of Americans, to every man, woman and child on this earth who is really hungry.
+We must never let the weight of this combination endanger our liberties or democratic processes. We should take nothing for granted. Only an alert and knowledgeable citizenry can compel the proper meshing of the huge industrial and military machinery of defense with our peaceful methods and goals, so that security and liberty may prosper together.
 
-But all this is not enough. All this will fail and none of it
+Akin to, and largely responsible for the sweeping changes in our industrial-military posture, has been the technological revolution. during the recent decades. In this revolution, research has become central; it also becomes more formalized, complex and costly. A steadily increasing share is conducted for, by or at the direction of, the federal government.
 
-will happen unless our vision of America as a world power includes a passionate devotion to great American ideals. We have some things in this country which are infinitely precious and especially American-a love of freedom, a feeling for the equality of opportunity, a tradition of self-reliance and low dependence and also of co-operation. In addition to ideals and notions which are especially American, we are the inheritors of all the great principles of Wessera civilization above all Justice, the love of Truth, the ideal of Charity. The other day Herbert Hoover said that America was fast becoming the sanctuary of the ideals of civilization. For the moment it may be enough to be the sanctuary of these ideals. But not for long. It now becomes our time to be the powerhouse from which the ideals spread throughout the world and do their mysterious work of lifting the life of mankind from the level of the beasts to what the Psalmist called a little lower than the angels.
+The solitary inventor, tinkering in his shop, has been overshadowed by task forces of scientists in laboratories and testing fields. In the same fashion, the free university, historically the fountainhead of free ideas and scientific discovery, has experienced a revolution in the conduct of research. Partly because of the huge costs involved, a government contract becomes virtually a substitute for intellectual curiosity. For every old blackboard there are now hundreds of new electronic computers.
 
-America the dynamic center of ever-widening spheres of enterprise, America as the training center of the skillful servants of mankind, America as the Good Samaritan, really. believing again that it is more blessed to give than to receives and America as the powerhouse of the ideals of Freedom and Justice-out of these elements surely can be fashlooed a vision of oth Century to which we can and will devocs dur the 10th selves in joy and gladocsa and vigor and enthusiasm
+The prospect of domination of the nation's scholars by federal employment, project allocations and the power of money is ever present and is gravely to be regarded. Yet, in holding scientific research and discovery in respect, as we should, we must also be alert to the equal and opposite danger that public policy could itself become the captive of a scientific-technological elite.
 
-Other nations can survive simply because they have endured so long-sometimes with more and sometimes with less significance. But this nation, conceived la adventure and dedicated to the progress of man-the station cannot truly endure unless there courses strongly through its veins from Maine to California the blood purposes and enterprise and
+It is the task of statesmanship to mold, to balance and to integrate these and other forces, new and old, within the principles of our democratic system-ever aiming toward the supreme goals of our free society.
 
-high resolve.. Throughout the 17th Century and the 19th Century and the 19th this continent teemed with manifold port and es purposes. Above them all and wearing them all together into the most exciting flag of all the world and of all history was the triumphal purpose of freedom.
+Another factor in maintaining balance involves the element of time. As we peer into society's future, we-you and I and our government-must avoid the impulse to live only for today, plundering for our own ease and convenience, the precious resources of tomorrow. We cannot mortgage the material assets of our grandchildren without risking the loss also of their political and spiritual heritage. We want democracy to survive for all generations to come, not to become the insolvent phantom of tomorrow.
 
-It is in this spirit that all of us are called, each to his own
+Down the long lane of history yet to be written, America knows that this world of ours, ever growing smaller, must avoid becoming a community of dreadful fear and hate and be, instead, a proud confederation of mutual trust and respect.
 
-measure of capacity, and each in the widest horison of his
+Such a confederation must be one of equals. The weakest must come to the conference table with the same confidence as do we, protected as we are by our moral, economic and military strength. That table, though scarred by many.past frustrations, cannot be abandoned for the certain agony of the battlefield.
 
-vision, to create the first great American Century.
+Disarmament, with mutual honor and confidence, is a continuing imperative. Together we must learn how to compose differences, not with arms, but with intellect and decent purpose. Because this need is so sharp and apparent, I confess that I lay down my official responsibilities in this field with a definite sense of disappointment.
 
------END OF READING-----
+As one who has witnessed the horror and the lingering sadness of war-as one who knows that another war could utterly destroy civilization which has been so slowly and painfully built over thousands of years I wish I could say tonight that a lasting peace is in sight.
 
-Modern History Sourcebook: Winston S. Churchill:
+Happily, I can say that war has been avoided. Steady progress toward our ultimate goal has been made. But, so much remains to be done. As a private citizen, I shall never cease to do what little I can to help the world advance along that road.
 
-Winston S. Churchill, excerpts from "The Iron Curtain Speech," 1946. © in the public domain.
+So in this, my last good night to you as your president, thank you for the many opportunities you have given me for public service in war and peace. I trust that in that service you find things worthy. As for the rest of it, I know you will find ways to improve performance in the future.
 
-"Iron Curtain Speech", March 5, 1946
+You and I, my fellow citizens, need to be strong in our faith that all nations, under God, will reach the goal of peace with justice: May we be ever unswerving in devotion to principle, confident but humble with power, diligent in pursuit of the nation's great goals.
 
-Winston Churchill gave this speech at Westminster College, in Fulton, Missouri, after receiving an honorary degree. With typical oratorical skills, Church introduced the phrase "Iron Curtain" to describe the division between Western powers and the area controlled by the Soviet Union. As such the speech marks the onset of the Cold War.
+To all the peoples of the world, I once more give expression to America's prayerful and continuing aspiration:
 
-The speech was very long, and here excerpts are presented.
+We pray that peoples of all faiths, all races, all nations, may have their great human needs satisfied; that those now denied opportunity shall come to enjoy it to the full; that all who yearn for freedom may experience, its spiritual blessing; that those who have freedom will understand, also, its heavy responsibilities; that all who are insensitive to the needs of others will learn charity; that the scourges of poverty, disease and ignorance will be made to disappear from the earth and that, in the goodness of time, all peoples will come to live together in a peace guaranteed by the binding force of mutual respect and love.
 
-The United States stands at this time at the pinnacle of world power. It is a solemn moment for American democracy. For with this primacy in power is also joined an awe-inspiring accountability to the future. As you look around you, you must feel not only the sense of duty done, but also you must feel anxiety lest you fall below the level of achievement. Opportunity is here now, clear and shining, for both our countries. To reject it or ignore it or fritter it away will bring upon us all the long reproaches of the aftertime.
+Now, on Friday noon. I am to become a private citizen. I am proud to do so. I look forward to it.
 
-It is necessary that constancy of mind, persistence of purpose, and the grand simplicity of decision shall rule and guide the conduct of the English-speaking peoples in peace as they did in war. We must, and I believe we shall,
-
-prove ourselves equal to this severe requirement.
-
-I have a strong admiration and regard for the valiant Russian people and for my wartime comrade, Marshal Stalin. There is deep sympathy and goodwill in Britain -- and I doubt not here also toward the peoples of all the Russias and a resolve to persevere through many differences and rebuff in establishing lasting friendships.
-
-It is my duty, however, to place before you certain facts about the present position in Europe.
-
-From Stettin in the Baltic to Trieste in the Adriatic an iron curtain has descended across the Continent. Behind that line lie all the capitals of the ancient.
-
-states of Central and Eastern Europe. Warsaw, Berlin, Prague, Vienna, Budapest, Belgrade, Bucharest and Sofia; all these famous cities and the populations around them lie in what I must call the Soviet sphere, and all are subject, in
-
-one form or another, not only to Soviet influence but to a very high and in some cases increasing measure of control from Moscow. The safety of the world, ladies and gentlemen, requires a unity in Europe, from which no nation should be permanently outcast. It is from the quarrels of the strong parent races in Europe that the world wars we have witnessed, or which occurred in former times, have sprung.
-
-Twice the United States has had to send several millions of its young men across the Atlantic to fight the wars. But now we all can find any nation, wherever it may dwell, between dusk and dawn. Surely we should work with conscious
-
-purpose for a grand pacification of Europe within the structure of the United Nations and in accordance with our Charter.
-
-In a great number of countries, far from the Russian frontiers and throughout the world,
-
-Communist fifth columns are established and work in complete unity and absolute obedience to the directions they receive from the Communist center. Except in the British Commonwealth and in the United States where Communism is in its infancy, the Communist parties or fifth columns constitute a growing challenge and peril to Christian civilization.
-
-The outlook is also anxious in the Far East and especially in Manchuria. The agreement which was made at Yalta, to which I was a party, was extremely favorable to Soviet Russia, but it was made at a time when no one could say that the
-
-The German war might not extend all through the summer and autumn of 1945 and when the Japanese war was expected by the best judges to last for a further eighteen months from the end of the German war.
-
-I repulse the idea that a new war is inevitable -- still more that it is imminent. It is because I am sure that our fortunes are still in our own hands and that we hold the power to save the future, that I feel the duty to speak out now that I have the occasion and the opportunity to do so.
-
-I do not believe that Soviet Russia desires war. What they desire is the fruits of war and the indefinite expansion of their power and doctrines.
-
-But what we have to consider here today while time remains, is the permanent prevention of war and the establishment of conditions of freedom and democracy as rapidly as possible in all countries. Our difficulties and dangers will not be removed by closing our eyes to them. They will not be removed by mere waiting to see what happens; nor will they be removed by a policy of appeasement.
-
-What is needed is a settlement, and the longer this is delayed, the more difficult it will be and the greater our dangers will become.
-
-From what I have seen of our Russian friends and allies during the war, I am convinced that there is nothing they admire so much as strength, and there is nothing for which they have less respect than for weakness, especially military weakness.
-
-For that reason the old doctrine of a balance of power is unsound. We cannot afford, if we can help it, to work on narrow margins, offering temptations to a trial of strength.
-
-Last time I saw it all coming and I cried aloud to my own fellow countrymen and to the world, but no one paid any attention. Up till the year 1933 or even 1935, Germany might have been saved from the awful fate which has overtaken her and we might all have been spared the miseries Hitler let loose upon mankind.
-
-There never was a war in history easier to prevent by timely action than the one which has just desolated such great areas of the globe. It could have been prevented, in my belief, without the firing of a single shot, and Germany might be powerful, prosperous and honored today; but no one would listen and one by one we were all sucked into the awful whirlpool.
-
-We must not let it happen again. This can only be achieved by reaching now, in 1946, a good understanding on all points with Russia under the general authority of the United Nations Organization and by the maintenance of that good understanding through many peaceful years, by the whole strength of the English-speaking world and all its connections.
-
-If the population of the English-speaking Commonwealth be added to that of the United States, with all that such cooperation implies in the air, on the sea, all over the globe, and in science and in industry, and in moral force, there will be no quivering, precarious balance of power to offer its temptation to ambition or adventure. On the contrary there will be an overwhelming assurance of security.
-
-If we adhere faithfully to the Charter of the United Nations and walk forward in sedate and sober strength, seeking no one's land or treasure, seeking to lay no arbitrary control upon the thoughts of men, if all British moral and material forces and convictions are joined with your own in fraternal association, the high roads of the future will be clear, not only for us but for all, not only for our time but for a century to come.
-
-Winston Churchill - March 5, 1946
-
------END OF READING-----
-
-America's Berlin
-
-Heart of the Cold War
-
-Ernest R. May
-
-For the United States, the high Cold War commenced with the blockade imposed on Berlin by the Red Army and, in response, the American and British airlift of supplies in 1948-49. Ordinary Americans then began to think major war was a real possibility. That phase of the Cold War came to its climax in 1961-62 with the sudden building of the Berlin Wall and a gunbarrel-to- gunbarrel face-off between American and Soviet tanks at an undistinguished urban intersection known as Checkpoint Charlie; then, most terrifying of all, came a crisis ostensibly about Soviet missiles in Cuba but at least equally about Berlin.
-
-Détente was reached at the end of the 1960s and beginning of the 1970s when the American and Soviet governments and those of the two Germanies accepted the division of Germany and of Berlin as facts to be lived with. The Cold War passed into history when the Wall came down in 1989 and Berlin once again became a united city. For Americans, the Cold War always had Berlin at its center. Without the continuing commitment to West Berlin, their experience of those decades could have been different, possibly better, but possibly much, much worse.
-
-ANATOMY OF A DIVISION
-
-At the end of World War II, Americans were determined to dictate the peace from Berlin, capital of the despised adversary. They believed it had been a mistake not to have done so in World War I. This belief contributed to U.S. insistence on unconditional surrender by the Nazi regime. It also contributed to wartime Agreements regarding postwar occupation zones of defeated Germany. Because the zones' boundaries were drawn on the basis of estimates of where Western and Soviet armies would meet up, the prospective Soviet zone included Berlin and much surrounding territory. The inter-Allied agreements provided nonetheless that the United States, Britain, and France would each be responsible for one of four sectors in Berlin. All the victorious nations could thus presume to be present
-
-America's Berlin
-
-in the enemy capital when terms for the future of Germany were laid down.
-
-The final summit conference of the war took place in the summer of 1945 at Potsdam, on the outskirts of Berlin. Bombing had rendered the city almost unrecognizable. Much given to thinking of the present by analogy with the past, President Harry Truman likened Berlin to Carthage. In July 1945 he presided when an American flag was raised over the U.S. headquarters building in Berlin. He would surely have been startled to be told that
-
-such a flag would fly until September 1994. when the Four Power military occupation of the city formally ended.
-
-In a breathtakingly short time, the United States evolved from a conqueror of Berlin to the city's protector. Something similar occurred in the relationship with West Germany. American occupation authorities became committed to the economic recovery and political rehabili- tation of both Berlin and Germany. In part, this was because the passions of war quickly burned out. Suffering among the German people aroused the compassion of American soldiers and relief workers. As Germans acquired faces and ceased to be simply the enemy, it became easy for Americans to believe that war crimes trials would rid Germany of its devils. In part, of course, po shifted because of the developing rivalry with the Soviet Union. Americans in Germany and in Washington became keen that Western- occupied territory not slip behind what Winston Churchill famously termed the "iron curtain." Knowing something of the brutal despoliation in Soviet occupation zones, American and British authorities hoped to set a different example in theirs. The twin motives of holding off the Soviets and providing concrete evidence of differences in values worked especially strongly in Berlin, where the Soviet and Western approaches were on daily display.
-
-THE FIRST TEST
-
-The 1948-49 blockade tested America's commitment to West Berlin. The vulnerability of Berlin-located some 100 miles inside the Soviet zone was obvious on any map. Military planners had studied for some time the possibility of an outright Soviet seizure of the city. That the United States and Britain had demobilized nearly all wartime forces sat heavily on their minds. The counterparts of Willie and Joe, the stubbled GIs of Bill Mauldin's classic newspaper cartoons, had long since gone home. The U.S. troops in Germany and Berlin were mostly green recruits with no combat experience and little combat training. The entire U.S. Army strategic reserve consisted of two and one-third divisions. Given intelligence estimates that the Red Army had 175 divisions with forward units still in fighting trim, U.S. planners warned that the Western position in Berlin was militarily untenable. General Omar Bradley, the army chief of staff, suggested withdrawing U.S. forces from Berlin before the Soviets put on a squeeze. This, argued, was preferable to being forced out under pressure, as it would "minimize loss of prestige." Truman and his secretary of state, George Marshall, rejected that advice. Instead, they pursued efforts to bolster the economies of West Germany and West Berlin, to bind the two more tightly, to the West, and to make more manifest the contrast between conditions in the West and in the East. Despite repeated and increasingly emphatic Soviet protests, accompanied by measures designed as reminders that the Red Army controlled West Berlin's lifelines, the three Western powers announced reforms in June 1948 that joined their occupation zones in Germany and Berlin as an economic unit and, through the introduction of a new currency, blocked the Soviets from contin- uing to extract reparations from Western zones as well as their own.
-
-Within days the Soviets responded with their blockade, a complete cutoff of road and rail traffic into West Berlin. Here was the crucial moment of the early Cold War. Pentagon officials reiterated Truman's judgment that Berlin could not be defended. Admiral William D. Leahy, chairman of the Joint Chiefs of Staff, inclined to Bradley's view. He wrote in his diary: "The American military position in Berlin is hopeless... It would be advantageous to the United States prospects to withdraw from Berlin." But General Lucius D. Clay, American military governor of Germany and commander of U.S. occupation forces in Europe, called instead for open defiance. He recommended a 200-truck convoy escorted by tanks and infantry. "It is our view," wrote Clay of the Soviets, "that they are bluffing and that their hand can and should be called now."
-
-Truman and Marshall were not of Bradley's and Leahy's mind. Truman said to his advisers, "We're staying. Period." At the same time, he and Marshall re- jected Clay's drastic recommendation. They also rejected a third option that
-
-of retracting the currency reform and re- turning to the bargaining table. Marshall described U.S. policy as "firm" but "unpro- vocative." He announced that the United States and other Western Powers would to the extent of their capacity supply Berlin by airlift The U.S. The Air Force and Britain's Royal Air Force, however, estimated that available airlift could meet only a fraction of West Berlin's needs for supplies and fuel. If the Soviets did not relent soon, it appeared, the Americans and their allies would have to evacuate the city, try an how? armed probe such as Clay had earlier pro
-
-posed, or back down on currency reform. West Berliners' defiance of the Soviets was making any form of retreat increasingly unattractive. In addition to imposing the blockade, the Soviet commander cut off electricity to western sectors of the city and demanded that Berliners refuse to use the new currency. The Berlin City Assembly, meeting in the Soviet sector and surrounded by Stalin's troops, rejected the order. Some 80,000 Berliners rallied the next day to applaud the assembly's action. Soviet authorities offered full rations to West Berliners who would register as their supporters; only a handful signed up. When the Soviets then interfered with the City Assembly and other noncommunist organizations, an estimated quarter of a million Berliners demonstrated in Reichstag Square. Appropriately, since Social Democrats were the strongest political group in West Berlin, it was the British Labor government's foreign secretary, Ernest Bevin, who spoke for the Western alliance. Bevin declared: "We cannot abandon those stouthearted Berlin democrats who
-
-are refusing to bow to Soviet pressure." Meanwhile, the American and British air forces uncovered new airlift capabilities. Transport and cargo planes from the war came out of mothballs. Showing the 4
-
-determination and managerial skill that would before long make the U.S. Strategic Air Command one of the most efficient military forces in history, General Curtis LeMay organized round-the-clock flights into and out of Berlin. At the airlift's peak, U.S. C-54s and British Dakotas landed and took off from Tempe Lds Tegel, and Gatow airports once a minute on average, 24 hours a day, unloading daily the equivalent of the cargo of two dozen normal freight trains. The airlift kept West Berlin well supplied for many months until Stalin signaled will- ingness to call off the blockade and finally did so in September 1949. Together, the prudent resoluteness of Western govern- ments, the courage and unity of West Berliners, and the logistical success of the airlift prevented the disappearance of West Berlin into the Soviet sphere. The blockade and airlift catalyzed an American-European military alliance. True, the Brussels Pact of March 1948 had already united Western Europe for defense against the Soviets, and almost everyone anticipated some American backup guarantee, though not necessarily in the form of the 1949 North Atlantic Treaty. True, too, the continuing Soviet military build-up, the Korean conflict of 1950-53, and the consequent militarization of the United States and of U.S. foreign policy accounted for the configuration of NATO as it eventually emerged. Nonethe- less, it was the successful defense of West Berlin in 1948-49 that made the security interests of the United States and those of Western Europe effectively inseparable, at least while the Soviet Union remained powerful and hostile.
-
-The outcome of the first Berlin crisis locked the United States into maintaining an apparently permanent garrison in the most exposed sector of the European continent. So long as this was the case, there could be no question that if an East-West conflict broke out in Europe, the United States would be fully engaged from the very first moment. Until the end of the Cold War, the U.S. commitment to defend West Berlin would differ in no material way from the commitment to defend New York or Los Angeles.
-
-ALTERNATIVE ENDINGS
-
-Given the tendency among scholars to write of the Cold War as if its course and outcome were predetermined and should have been predictable, it is worth pausing for a moment to note how easily this. The first Berlin crisis could have had a different history. Individuals were important. If Trump had been a more timid man-one more like Jimmy Byrnes, his secretary of state before Marshall, or Adlai Stevenson, his chosen and defeated successor he might have reasoned as Bradley and Leahy did. Had he not heard the cautious counsel of Marshall, Under Secretary of State Rober Lovett, and George Kennan of the State Department Policy Planning Staff, he might have acted belligerently, as Clay recommended. Marshall's and Kennan's successors, Dean Acheson and Paul Nitze. would probably have encouraged him to do so. And without the organizing genius of LeMay, Truman would probably have had to choose an alternative policy, for the airlift would not have kept West Berlin alive through the winter.
-
-Important in retrospect is the paradox that Western strength grew from military weakness. A U.S. commander warned that his garrison in Berlin could be overrun "before you could say 'Politburo."" A British general, so it was said at the time, was asked what the Russians would need to reach the Pyrenees and the Atlantic; he replied, "Shoes." This state of affairs lent force to the argument made in all Western capitals that West Germany was just about as inde- fensible as West Berlin. That was Clay's stated reason for dismissing the notion of preemptive withdrawal. "After Berlin will come Western Germany," he wrote, "and our strength there is relatively no greater and our position no more tenable than Berlin." If the boundary of West Germany had been thought more defensible, the proposal to pull the Berlin garrison back to that line might have had more appeal. Finally, it is surely significant that the Soviet Union had not yet successfully tested a nuclear device. Truman's resoluteness during the crisis and that of the British government as well owed something to faith in America's strategic superiority over the U.S.S.R. and to a presumption that fear of bombing, especially atomic bombing, would deter Stalin from letting matters get out of hand. Clay based his recom- mendation for an armed convoy in part on this argument. "They are definitely afraid of our air might," he declared. If either Soviet disinformation or misjudgment by Western intelligence services had given rise to belief that the Soviets already had nuclear weapons, political leaders in Washington and London, and perhaps in West Germany and West Berlin, could well have seen the issues differently. THE CHANGING STRATEGIC PICTURE
-
-When Berlin next became a zone of acute crisis, in 1958-62, conditions had changed. Militarily, Berlin was still isolated and vulnerable. It was now, however, not just inside a Soviet occupation zone; it was an enclave within a German Democratic Republic which, though clearly under Soviet domination, had a government of its own with reasons of its own for wanting to take over West Berlin. Since East Berlin was the GDR's capital, the fact the city was partly noncommunist was symbolically offensive. On practical grounds, West Berlin was dangerous to the GDR because it was a showcase for the material goods that socialism seemed incapable of producing, and, worse yet, offered an easy escape route from East to West for, among others, the skilled and educated workers whom the GDR most needed if it were to compete economically with West Germany. Soviet forces stationed in the GDR and surrounding areas still possessed the power to snuff out West Berlin's independence in days, if not hours. The new local conditions posed an additional threat: if GDR police units were to take over functions from the Red Army, the fact of their doing so would challenge the legitimacy of the continuing presence in Berlin of Western military forces. If East Germans rather than Soviets were to examine papers at one of the city's internal checkpoints, they could easily go on to claim within West Berlin other powers that they exercised in East Berlin, for they would not be under the Four Power accords of 1945 that technically governed and limited Soviet activities.
-
-By 1958, the calculus of comparative strategic vulnerabilities had shifted. In the earlier period, the United States and Britain had been woefully weak on the ground but arguably were less vulnerable than the Soviets should war actually come. In addition to atomic bombs, they had had large mobilizable reserves of conventional bombers. The Soviets had had few that could reach Britain or pene- trate the defenses of a revivified Fighter Command, and had no evident capacity for direct attack on the United States. A decade later, American strategic air power had expanded immensely. LeMay's Strategic Air Command had deployed medium-range B-47s at bases around the globe and new intercontinental-range B-52s based in the United States. All these planes were armed with nuclear or thermonuclear weapons with many times the explosive power of the original atomic bombs. There was little doubt that SAC could do what an Air Force general had described in the early 1950s as the objective of its targeting: reduce the Soviet Union to "a smoking, radiating ruin at the end of two hours." And Britain had its own nuclear weapons and aircraft easily able to reach the Soviet homeland.
-
-Neither Britain nor the United States, however, retained its earlier ability to weather a war. The Soviets had multiplied their own stocks of nuclear and thermo- nuclear weapons. By the late 1950s they had a large fleet of bombers that could reach the British Isles and some that could make one-way flights to North America. Moreover, like the Western powers, the Soviets had invested increasing resources in developing nuclear armed rockets able to reach distant targets at vir- tually the speed of a bullet. In late 1957, by putting the Sputnik satellites in orbit, the Soviet Union demonstrated its ability to launch an intercontinental ballistic missile. The United States seemed on the verge of being as totally vulnerable as Britain and the Soviet Union.
-
-Yet another difference between 1948- 49 and 1958-62 was the life of Western
-
-Europe. In the earlier period Western European leaders had been in dread not only of the Red Army but of possible communist inroads in their own countries helped by popular belief that the Soviets were irresistible and might as well be accommodated. The leaders had been desperate for American economic aid and political support, and beyond that, for overt evidence of American military backing.
-
-By the end of the 1950s, Europe had achieved both economic recovery and comparative political stability. Although communist parties remained important, particularly in France and Italy, the chances of their turning a Western country into a Soviet satellite seemed nowhere serious. West Germany had become an independent nation. It was beginning to outstrip other states in Europe economically and was increasingly pursuing an independent foreign policy. Its exercise of sovereignty, however, still confronted the potential threat of the GDR taking over Soviet functions in Berlin, a technical challenge that became doubly complicated as the West German government, sensitive to the many East German refugees in the electorate, rigidly opposed any Western dealings with the GDR that might even hint at recognition.
-
-Western Europe's military dependence on the United States continued. In the early 1950s the United States had posted combat divisions in West Germany. They had been committed at a time of greatly increased overall U.S. military preparedness and when the Soviet-sponsored North Korean attack on South Korea was widely viewed as a rehearsal for a comparable effort in Europe. West German military units, as originally envisioned, would have been replacements for these U.S. divisions. But when such units actually came into being, they served more as adjuncts for U.S. forces presumed to be on permanent station. When rumors cir- culated, as in mid-1956, that the United States might withdraw its troops, Europeans reacted with high alarm.
-
-Given the growing nuclear arsenals on both sides, however, Europeans were at the same time fearful that the United States might either trigger a nuclear war that would engulf their continent or, to save its homeland, abandon them in a crisis. Fear that the United States might do either too much or too little became lacute after the 1956 Suez crisis. For America then to oppose Britain and France (and Israel) seemed to show that the United States could see its interests as at odds with those of its allies. Increased American-Soviet competition in Asia and elsewhere reinforced this perception and also roused concern that Europe could become a victim of a crisis originating elsewhere. In August and September 1958, for example, the United States seemed to threaten nuclear war against the Soviet Union's ally China to deter Chinese occupation of some barren islands off China's own coast.
-
-RAISING THE WALL
-
-In November 1958 Soviet Premier Nikita Khrushchev set off the new series of Berlin crisis by demanding that a peace treaty for Germany be signed within six months and threatening otherwise to sign a treaty of his own with the GDR, one effect of which would be to transfer to the East German state all Soviet rights and functions in Berlin. He let the dead- line lapse without acting. In 1959, when he visited the United States, he spoke again of the urgent need to change the status of Berlin. This was to be a topic at a Paris summit meeting in May 1960, but Khrushchey walked out of that meeting to protest American U-2 reconnaissance flights over the Soviet Union. He then announced that after the 1960 U.S. presidential election he would insist the new president come to terms over Berlin. When he met John F. Kennedy in Vienna in June 1961 he declared coolly that he was prepared to fight a nuclear war rather than leave Berlin in status quo.
-
-Sources now accessible in the former Soviet Union reveal that Khrushchev was under pressure from the government of the GDR, which was suffering an exodus of refugees that swelled almost by the day. These sources also show that, in view of the widening split with China, Khrushchev was deeply concerned about seeming unwilling to stand up to the Americans. An important new element was Fidel Castro's success in Cuba; Khrushchev was desperately afraid of a
-
-Cuban tilt toward the Chinese In August 1961 Soviet and GDR forces
-
-suddenly put up the Berlin Wall. Concrete blocks and bricks were deployed overnight, then the hideous structure rose in stages-fence posts and coils of barbed wire, then a high cement-block wall; behind that, a second wall with a deep trench and dog runs; the whole surveyed by watchtowers with search lights and machine guns like those in a penitentiary. President Kennedy had already been careful to make clear that the United States did not claim any control over the Soviet sector of Berlin. He had said that the United States was committed to defend "the frontier of freedom," but he had spoken of that frontier as including only West Berlin. For theatrical effect, Kennedy sent General Clay back to the city. American soldiers conducted maneu- vers in which they tore down replicas of parts of the Wall. At this juncture the American and the Soviet tanks confronted each other at Checkpoint Charlie. Nothing happened. Kennedy and Khrushchev communicate privately, Soviet tanks turned around, and American tanks did likewise.
-
-Some analysts at the time and long after, concluded that the building of the Wall had ended the protracted Berlin crisis in Moscow's favor. In fact, the Wall solved few of the problems Khrushchev and his East German allies faced, and made other problems worse. While the Wall prevented more people from leaving for the West and shuttered the Berlin showcase of Western capitalism, it served as an open confession that the GDR could hold its population only behind a prison barricade. For leaders in the GDR, the Wall was no substitute for control of the entire capital. And for Khrushchev, the building of the Wall did little, for he had not achieved the long-sought Berlin settlement, and he had gained nothing in his struggle with the Chinese for predominance within the world communist movement.
-
-In the winter of 1961-62 the Pentagon intensively conjured up scenarios for dealing with a Soviet or an East German move against West Berlin. All these scenarios involved at least heightening the threat of nuclear war. Some called for demonstration nuclear strikes on relatively unpopulated targets in the Soviet sphere. At the Soviet Party Congress of October 1961 Khrushchev declared that he would sign his own German peace treaty by the end of the year. Once again he let his deadline pass, but in a personal letter to Kennedy he wrote imploringly, "You have to understand, I have no ground to retreat further, there is a precipice behind." After continuing to make threats throughout the spring and summer of 1962, Khrushchev informed Kennedy that he would wait until after the November congressional elections and then "give him a choice to go to war or sign a peace treaty." Returning from a visit to Europe, U.S. Secretary of Defense Robert S. McNamara said publicly that conditions in Berlin were as tense as at any time since the Korean conflict. CUBAN MISSILES
-
-In October 1962 Kennedy discovered that Khrushchev was speedily and secretly setting up strategic missile launchers in Cuba. Though some historians have been inclined to accept Khrushchev's post hoc justification that he acted primarily to help defend Cuba against a possible U.S. invasion, chances are that his explanation arose from the fact that all he got from the resultant crisis was a renewed but still conditional U.S. pledge not to invade Cuba. At the time he decided to turn Cuba into a missile base, Berlin was the dominant foreign policy issue in Moscow. Anatoly Dobrynin, who was just leaving to become Soviet ambassador in Washington, recalls that "Germany
-
-and Berlin overshadowed everything." Intertwined with the Berlin issue were new questions about the strategic balance. In October 1961 a Pentagon spokesman had said quietly but publicly that the alleged "missile gap" was nonexistent. Satellite photography proved what U-2
-
-photography had merely suggested that THE IMPOSSIBLE STATUS QUO Khrushchev's claims about turning out ICBMs "like sausages" were largely bluff. This disclosure was not only an embar- rassment for Khrushchev diplomatically, but affected the Soviet position vis-à-vil the Chinese, for one count in Beijing's indictment of Khrushchev had been failure to aggressively develop the communist world's overall capabilities for nuclear war. When Khrushchev's experts told him that placing shorter-range missiles in Cuba would partly remedy the strategic imbalance, it had to be welcome advice. No expert on Cuba suggested that these missiles would make Cuba safer; indeed all the specialists warned that Castro might resist because of fear that they would make Cuba more of a target for the United States. But Khrushchev might well have thought, nonetheless, that the missiles would contribute to Cuba's defense. Trying to sort out his motives is like discerning those of a gambler who bets all he has on a single cast of the dice.
-
-Kennedy interpreted the discovery of missiles in Cuba as the opening of a new Berlin crisis. He found confirmation when Soviet Foreign Minister Andrei Gromyko visited Washington just before the discovery was made public. The microphones that Kennedy had secretly installed in the Oval Office and the Cabinet Room captured on tape his report to the Joint Chiefs of Staff the morning after his meeting with Gromyko: "What's basic to them is Berlin-In every conversation we've had with the Russians, that's what- Even last night we talked about Cuba for a while, but Berlin- that's what Khrushchev's committed himself to personally." sign his own German peace treaty by the end of the year. Once again he let his deadline pass, but in a personal letter to Kennedy he wrote imploringly, "You have to understand, I have no ground to retreat further, there is a precipice behind." After continuing to make threats throughout the spring and summer of 1962, Khrushchev informed Kennedy that he would wait until after the November congressional elections and then "give him a choice to go to war or sign a peace Some analysts, at the time and long treaty." Returning from a visit to Europe, U.S. Secretary of Defense Robert S. McNamara said publicly that conditions in Berlin were as tense as at any time since the Korean conflict.
-
-The dilemma Kennedy faced during the missile crisis had inherited the American commitment to Berlin ever since 1948-49. There was no conceivable way in which the city could be defended or retaken simply by local use of conventional military force. The only deterrent to a Soviet or East German takeover was a threat of military action elsewhere, almost certainly with air power and eventually, if not immediately, with nuclear weapons. As nuclear arsenals on both sides grew, this increasingly involved a likely if not inevitable escalation to general nuclear war.
-
-The threat to do something militarily in response to Soviet or East German action against West Berlin had been only faintly credible in the period of the U.S. nuclear monopoly. A transfer of B-29s to bases in Britain during the 1948-49 crisis was a bluff by Truman on a par with that of Khrushchev later, for it was evident to the naked eye that these planes and their bases were not equipped to handle the then-boxcar sized atomic bombs. Eisen hower had said privately, considering the possible use of nuclear weapons to defend Berlin, "You might as well go out and shoot everyone you see and then shoot yourself." Nevertheless, he saw no choice but to continue to voice the threat, for the alternative was to concede that the United States could do nothing to prevent two million West Berliners from becoming unwilling subjects of the GDR. A key to U.S. actions during the first half of the Cold War is found in the inability to protect Berlin by any means other than a bizarre proposition: preserving microscopic credibility for an inherently incredible threat.
-
-Before the missile crisis, Kennedy had groped for some alternative. He had said to one of his sidex "It seemailly for us to be facing an atomic war over a treaty preserving Berlin as the fate capital of a reunited Germany when all of us know that Germany will probably never be re united God knows To not an isola- dionist, but it seems particularly stupid to risk killing a million Americans over an argument about access rights." After the crisis, he spoke of Berlin as an impossible situation and pressed his advice to come up with formulas offering some hope of escape. He did not move far along this line before his ansamination in November 1963 The outcome of the missile crisis, fortunately, made it almost impossible for Khrushchev to act adven Tumusly again. His colleagues removed him from office in 1964, bring him of hearing damaged the international prestige of our government, our party, armed forces, while at the same tinie helping to raise the authority of the United States Khrubchev's eventual sor, Levald Betahoes, occasionally protested Berlin's anomalous status but precipitated no new crises
-
-Kennedy had not been the first Ameri- can policymaker to seek some alternative defeat of West Berlin by threat of madear as Kennan had pleaded for such thinking during his last days as head of the Policy Planning Staff in 19ga. In wg Earnhower's supposedly hand-line stary of state, John Foster Dulles, wted that the United States peopose to the new post-Seln Soviet government mal military pellack,aliasing
-
-Germany, with Berlin, perhaps, a capital It was not until stó that the effort to And ther policy finally was first. In sathal speech in New York, President Jokoan declared that the dominant
-
-TAKING YOU TO A NEW REALITY
-
-American interest in Central Europe was peace and stability. The "one great goal of a united West," he said, "is to heal the wound in Europe which now cuts East from West and breathes from brother." But, he continued, the wound "at be healed with the consent of Eastern European countries and the consent of the Soviet Union''While his words did not imply abandonment of the ideals of national self-determination and individual freedom of choice, they did imply that the United States was prepared to accept the reality of two Germanies, and of the two Germanies assuming primary responsibility for the status and future of Berlin
-
-This shift in stance by the United States anticipated but was not independent of the shifts in West Germany that generated a Grand Coalition, eventually made Willy Brandt chancellor, and enabled Beant to pursue his Or Politik, establishing live-and-let-love relationship with the Goa. Like many Johnson administration initiatives, the one on Germany and Berlin was stilled by the Vietnam War and the Soviet invasion of Chechealskia in sp Like odhens, such as the fast Strategic A Limitation Talla (Art), it came to fruition in the Nion administration Complicated two-power and four-power acconds of syys, define orchestrated by Henry Kissinger, med to give permissions to the division of Germany and of Belin, their new status accepted by all parties. In his mesin Kisinger details the many intrigues quired to overcome distance from figs fos, military commands, and other bureaucracies habituated to the rigidities of the Cold We He com accurately: "Hence forth, Berlin dapper send from the last of intomational crisis spots''
-
-LET THEM COME TO BERLINI
-
-From 1948 to 1971 a commitment to Berlin had been a crucial factor in US foreign policy. The success of the airlift left the United States for all these years holding the most advanced military out- post in Western Europe. The need to 1post i preserve some degree of credibility for the U.S. pledge to defend West Berlin's population greatly limited Washington's flexibility with regard to any part of the Soviet bloc or, after the block evident fracture, with either the U.S.S.R. or China. That need contributed to the American government's reacting as strongly as it did to, for example, Guatemala's leftward tilt and China's moves to take control of the Quemoy and Matsu islands. It helps account for Eisenhmeer saying to Kennedy during the 1960-ta transition the landlocked, impoverished Laos was a crucial theater East-West competition. It also helps account for the conviction carried over into the Kennedy, Johnson, and Ni administrations that sign of US weakening on South Vietnam could eopandise American credibility around the world. One can argue, in other words, that the success of 1948-49 and the consequent commitment to Berlin created a straitjacket for the United States for the
-
-duration of the high Cold War One can also argue, however, that the commitment to Berlin contributed importantly to the Cold War's becoming what the historian John Lewis Gaddis terms "the long peace." Seeing U.S. tenacity in risking all-out war for such an exposed site may well have had a cooling infants in Moscow and even in Beijing Strategic theorists argue that nuclear
-
-deterrence gains effectiveness if you side thinks the other not entirely rational Such amendment may have figured into the Soviet government's refraining from intervention in Yugoslavia, agreeing to negotiated withdrawal from Austria, and exhibiting great caution in the aggos and 1960s with regard to the Middle East.
-
-Fear of provoking some Soviet move against Berlin certainly made the United States wary about attempting earth in dispute with the supposed Sino-overt action elsewhere, most obviously against Castro's Cuba. After the missile crisis Kennedy's tape recorder caught him musing to one of the chiefs of staff "What we're trying to do is think of something about Berlin-Because Berlin is really paralyzing-Because everything you want to do, you say, "Oh, well it will screw as in Berlin Absent the American commitment to West Berlin, the Cold War might more often have verged on hot war. Unquestionably its course would have been different.
-
-After the scenes of 1971, Berlin nonetheless retained great symbolic power for Americans. The Vietnam War and atrovent demographic and social changes at home had by then created a strong current of doubt that the Cold War was another good way But runs of picture of Berliners cheering the airlift helped keep some of the old faith flickering It was hard for any American eve doctrinaire "revisionist"-to see the Berlin Wall and not come away cocinando that there was some moral different between the Cold War rivals. Visiting Berlin in 1965, Kennedy declared, "People who mally don't understand, or ay they don't, what is the great iut between the free world and the communist world the come to Bedia President Regn visited Berlin in 1987 and looked upon a new Soviet regime ostensibly committed to change. Standing a hundred yards from the venerable Brandenburg Gate of old Berlin, he said: "General Secretary Gorbachev, if you seek peace, if you seek prosperity for the Soviet Union and Eastern Europe, if you seek liberalization, come here, to this gate." Then, with the world's television cameras trained on the newer, barbarous barrier dividing the city, Reagan demanded, "Mr. Gorbachev, tear down this wall."
-
-For most Americans, the end of the Cold War came as their television screens in November 1989 showed the jubilation of Berliners tearing down the Wall. Though historians may identify demon- strations in Leipzig or other events as more critical turning points, the images that endure are those of Berliners wielding their hammers and wire-cutters. The transition to an era yet unnamed is symbolized by photographs of President Bill Clinton and Chancellor Helmut Kohl walking arm in arm through the open Brandenburg Gate. In this new era, Berlin is restored as the capital of a united and democratic Germany.
-
-How all this history will be recalled a generation or more from now is hard to foresee. During the Cold War, the United States and Germany were partners. The partnership persists, and Berlin's being the capital may provide reinforcement. Americans may remember Berlin's defiant maintenance of its own independence and freedom, and Germans may have more reason to be reminded of the enduring value of the Cold War relationship with the United States. But books and films also keep vivid for Americans images of Berlin as the city of Hitler, swastika banners, and Stormtrooper jackboots. And Germans, Berliners included, have a very old and very lively tradition of interpreting American actions as selfish and exploitative. For Germany and Berlin to be once again synonymous could cause Americans or Germans or both to be reminded more of differences and past conflicts than of the closeness between the two peoples after the airlift. Events could tip the balance either way, and events will control. But the parts of history people best remember tend to be those that are the subjects of lively writing and well-crafted movies and television programs. Perhaps Americans and Germans interested in continuing partner ship should invest in making the history of Berlin in the Cold War as unforgettable as its history in the Nazi era.
+Thank you, and good night.
